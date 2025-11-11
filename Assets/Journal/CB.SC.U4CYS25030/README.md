@@ -5,7 +5,9 @@
 # 22AVP103 - Mastery Over Mind
 
 ## Journal Record
-
+Date:11/11/2025
+Name:sahith k
+Topic:writing about three people to whom I am grateful for meeting them in my intermediate phase. 
      The three people I am gratefultfor meeting them in the collegearem madhu(my friend), abhijeet (my senior) and dama srinivas (my teacher). 
 
 1.my friend-charan
