@@ -37,6 +37,7 @@ whenever i feel sad or worried about something she does not console me that feel
 Having a roommate like her has made me realize how important small acts of kindness are. She doesn’t have to do big things — even her patience when I’m being moody or her jokes when I’m tired make everything better. I’m genuinely grateful that I got her as my roommate because she’s not just someone I share a room with; she’s become a close friend and a safe space for me.I have never worried about how she will judge me ,so i always feel comfortable in sharing with her everything that i couldn't with my family .
 When I look back at the last few months — from August to October — I can’t imagine college without her laughter and calmness. I’ve learned from Hema that friendship isn’t about constant excitement or grand gestures; it’s about being there, quietly, consistently, and with care.
 I’m truly thankful that I met her. She’s made hostel life not just bearable, but beautiful.
-There are other people who i am truly grateful for the little things they have done for me  but these three people came to my mind immediately when i thought of writing gratitude journal.
+There are other people who i am truly grateful for the things they have done for me  but these three people came to my mind immediately when i thought of writing a gratitude journal.
+
 
 
