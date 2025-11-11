@@ -12,8 +12,9 @@ I would like to thank Arunima from my class who taught me shortcut pathways whic
 
 Scenario 2
 Date: 3.5 months ago 
-I would like to thank the cleaning staff for maintaining the classrooms in a very neat manner. I would especially thank them for cleaning the board that appears so clean when I enter the classroom every week. The same board that appeared full of dust the previous week now shone brightly.
+I would like to thank the cleaning staff for maintaining the classrooms in a very neat manner. I once asked them if they could clean the boards. From them on they cleaned the board every week. Hence I would specially like to thank them for cleaning the board that appears so clean when I enter the classroom every week. The same board that appeared full of dust the previous week now shone brightly.
 
 Scenario 3
 Date: 2 months ago
 I would like to thank my bus mate who convinced the bus driver to wait for me when I was late to come to the main bus parking. If it were not for her timely action, I would have missed my bus.
+
