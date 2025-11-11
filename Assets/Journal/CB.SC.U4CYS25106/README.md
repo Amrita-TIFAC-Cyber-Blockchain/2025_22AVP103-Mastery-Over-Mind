@@ -60,6 +60,6 @@ By the end of the day, I felt a quiet kind of happiness. I was glad to have frie
 
 I’m someone who usually gets excited about festivals or big events. It’s easy to get lost in studies and routines, but taking some time to just enjoy with friends and be part of something on campus is important too.I hope the university keeps doing things like this. It helps students who are far from home feel a bit more settled, and it gives everyone a break from the usual pressure. Even if things go back to normal tomorrow, I’ll remember this day for a long time. It was simple, fun, and just what I needed.
 
-=}
-
 Most of all, even though we were told not to write this, I’m really grateful to my parents for letting me study here. I’m also thankful to Appu for always helping me, even though I am a trouble. And above all, I’m grateful to God for always being there for me, for anything and everything, and keeping me safe.
+
+=}
