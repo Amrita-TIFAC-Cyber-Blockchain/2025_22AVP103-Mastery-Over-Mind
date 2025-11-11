@@ -1,7 +1,5 @@
-<p align="center">
-    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
-</p>
-
-# 22AVP103 - Mastery Over Mind
-
-## Journal Record
+Gratitude is the feeling of being grateful to someone whom you are thankful .
+I wish to show my gratitude towards my roommate and professor and senior.
+I'm grateful to my friends Sathwika and Deepthi in Amrita University for their polite behaviour and helping nature . They did not make me feel homesick during starting days of my college . It's my first time being in hostel since childhood but my friends made my day to day works a bit easy because they help me in completing my works in academics and we together clean our room without any hesitation . A fun part about sharing room with them is they wakes up first because of my alarm and then they wakes me up. We share our food with eachother and we go to a walk during evenings which refreshes us. So i wish to show my gratitude towards my friends.
+I'm grateful to my professors for their helping nature . My professors in Amrita university delivers their subject in a easy way with scenarioes happening around us which makes me a bit easy to understand the subject .They spend their valuable time to make me understand the subject and they patiently encouraged me by correcting my mistakes . I wish to show my gratitude towards Saurabh sir .
+I'm grateful to my senior in Amrita university because i entered the college with many doubts then during induction program i meet a senior who helped me to clear my doubts regarding fest conducted by our college and a way to academics and motivated me . So i wish to show my gratitude towards senior .
