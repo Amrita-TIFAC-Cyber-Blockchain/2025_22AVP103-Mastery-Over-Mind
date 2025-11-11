@@ -15,4 +15,4 @@ secondly I am grateful for our hod sir Mr.sethumadhavan sir who have resolved ou
 
 thirdly I am grateful for our ramguru sir who is our Maom lecturer who has listened to our problems in a very cool manner and tried to bring the changes we wanted
 
-meeting this three people in my intermediate level is more meaningful and fulfilling. they have contributedmin improve and getting a great attitude from mysel.
+meeting this three people in my intermediate level is more meaningful and fulfilling. they have contributedmin improve and getting a great attitude from myself.
