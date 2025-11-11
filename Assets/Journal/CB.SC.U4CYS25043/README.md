@@ -6,14 +6,18 @@
 
 ## Journal Record
 11/11/25
-Person1-Ajay 
-I'm greatful to have Ajay as my senior .
-He guided me through how thing work here in Amrita .He helped me with academics. Thought me how to manage both academics and extra curricular activities. One day i was in library preparing for modern physics test which was happening the next day. I was frustrated while preparing. He made me understand the concepts . Through his guidance i performed well in that test 
+Place:Amrita Vishwa Vidyapeetham 
+
+Person 1: Ajay
+I am grateful to have Ajay as my senior. His guidance has been a major factor in my adjustment to Amrita. When I was new, he was the one who guided me through how things work here on campus. This assistance was very important. He also helped me with my academics, which I found challenging. He specifically taught me how to manage both academics and extracurricular activities. This is a difficult balance, and he provided a clear method.
+I can recall a specific instance of his help. One day, I was in the library. I was in the process of preparing for a Modern Physics test. This test was scheduled for the next day. I was feeling very frustrated while preparing for this test. The concepts were complex, and I was not understanding them. Ajay noticed my frustration. He approached me and took the time to make me understand the concepts. He explained them in a different way that was much clearer. As a direct result of his guidance, I performed well in that test. My positive outcome was attributable to his intervention.
 
 
-Person2-Rohini Ma'am 
-She was my mentor in SIH . I had no idea about what SIH was. She guided me and my team through the process of SIH. With her help we presented our ppt . Without her would have lost,unsure of where to begin .
+Person 2: Rohini Ma'am
+The second person I am grateful for is Rohini Ma'am. She served as my mentor for the Smart India Hackathon, also known as SIH. When I joined the team, I had no idea what SIH was. I was completely new to the process and did not know what to expect. My team was also in a state of confusion.
+Rohini Ma'am guided me and my entire team through the complete process of SIH. She was very structured in her mentorship. She outlined the steps we needed to take and provided feedback at each stage. With her help, we were able to create and present our PPT (PowerPoint presentation). This presentation was a key component of the hackathon. Without her, we would have been lost. We were very unsure of where to begin. Her guidance provided the necessary direction and framework for our team to be successful.
 
-Person3-Neranjan
-Neranjan is a worker in Samudra canteen .
-A week ago i was sitting the canteen enjoying my orange juice at that time a person spilled  the juice allover my shirt, pant as well as my bag .Neranjan help me by offering tissues and sanitizer to the stains on me . I'm grateful that i met him that day
+
+Person 3: Neranjan
+The third person is Neranjan. Neranjan is a worker in the Samudra canteen. My gratitude for him stems from an incident that occurred one week ago. I was sitting in the canteen at a table. I was enjoying my orange juice. At that time, another person passed by my table and accidentally spilled juice. This juice went all over my shirt, my pant, as well as my bag. My personal items and clothes were covered.
+This was an unpleasant and public event. Neranjan observed the situation. He immediately came over to help me. He offered me tissues and a bottle of sanitizer so I could address the stains on me and my clothes. He also proceeded to clean the spill on the table and floor. His response was fast and very helpful. I am grateful that I met him that day. He provided practical assistance in a moment of need.
