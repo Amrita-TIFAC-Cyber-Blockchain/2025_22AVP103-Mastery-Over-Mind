@@ -24,9 +24,9 @@ Meeting Professor Srinivasan helped me to gain a better understanding. His teach
 
 Senario: 3
 Date: Aug 21
-Whom: Praveen Sir
-During one of the early days of my college life, in the first month of my B.Tech, I had the opportunity to interact with my class advisor, Praveen Sir. I belong to the Department of Computer Science and Engineering (Cyber Security). Section B, and he is the class advisor for our section.
-Praveen Sir is very and he used to take care and resolve problems of students of our section He patiently listens to the problems faced by the students and helps them find suitable solutions. One day, I faced an issue logging into my student portal, so I approached him for help. He responded very kindly, guided me through the process, and helped me to resolve the issue.
+Whom: Sreejith sir
+During one of the early days of my college life, in the first month of my B.Tech, I had the opportunity to interact with my class advisor, Sreejith Sir. I belong to the Department of Computer Science and Engineering (Cyber Security). Section B, and he is the class advisor for our section.
+Sreejith sir is very and he used to take care and resolve problems of students of our section He patiently listens to the problems faced by the students and helps them find suitable solutions. One day, I faced an issue logging into my student portal, so I approached him for help. He responded very kindly, guided me through the process, and helped me to resolve the issue.
 Whenever any student approaches him, he always responds politely and ensures that their problems are solved. This interaction made me to feel so grate towards his students.  
 
 
