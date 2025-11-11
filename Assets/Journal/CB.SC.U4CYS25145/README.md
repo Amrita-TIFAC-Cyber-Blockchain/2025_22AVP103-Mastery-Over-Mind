@@ -134,4 +134,5 @@ There was one instance where I answered a problem incorrectly. Instead of just s
 
 Many students consider Mathematics to be a subject that's either "easy for some" or "impossible for others." But **Dr. Srinivasan** breaks that stereotype. He says that anyone can understand Math, if it's taught properly and patiently. His enthusiasm for the subject is palpable in every lecture. Never does he simply read from the textbook but brings in his own examples to illustrate the points, connects theory with practical applications, and explains why each concept is important. That makes a huge difference. Sometimes, while going home after class, I realize just how lucky we all are to have this kind of teacher: one who does not teach just for the sake of teaching but one who truly desires that his students learn and progress. His commitment reminds me that teaching is not simply a profession; it is a form of service.
  
+Ridhanya.M CB.SC.U4CYS25045 B.Tech CSE (Cybersecurity) Amrita Vishwa Vidyapeetham, Coimbatore
 
