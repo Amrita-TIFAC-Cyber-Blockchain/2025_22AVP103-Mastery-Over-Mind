@@ -20,7 +20,8 @@ srinivasan sir:I want to express gratitude for My Maths teacher because when I t
 His commitment to helping us understand every concept no matter how complex and no matter how many times we ask doubts truly inspires me. He is very patient and listens 
 to our doubts regardless of how many times we ask it, this patience is what i aim to develop within myself.
 
-pranay: I am really greatfull that i got him as my friend . He is one of those guys who always stays chill no matter what. Deadlines, assignments ,exams around him but he 
+pranay: I am really grateful that i got him as my friend . He is one of those guys who always stays chill no matter what. Deadlines, assignments ,exams around him but he 
 just stays chill. But behind that clam attitude he is a very dedicated and responsible person. He just completes all his tasks on time without making it look stressfull.
 His presence has made this journey more enjoyable even in tough situations.
+
 
