@@ -5,25 +5,77 @@
 # 22AVP103 - Mastery Over Mind
 ## Journal Record
 person 1 : watchman
-I really want to write about how grateful I am for the watchman at the Academic Block 3 gate. I don't even know his name, but he makes my day feel a little better.
-Every day, almost like a routine, he asks me what I ate and how the food was. It's such a simple question, but it feels like someone is looking out for me.
-Sometimes I'll complain and say the food wasn't nice. He always smiles a little and says, "It's okay, you have to learn to live with it." And then he'll add something that really sticks with me: "At least eat for your strength, not for taste. Don't even skip your meals."
-It's funny because we are strangers, but he talks to me like I'm his own child. He gives me all this little advice, just checking in and making sure I'm doing okay.
-It feels so warm to have someone care like that, especially when I'm away from home. I'm just really, really thankful for him and his kind words. It makes a big difference.<br>
+Today, my heart feels really full, and I want to write about someone who I feel so much gratitude for. It’s someone I see almost every single day, but I don’t even know his name. It’s the watchman who is always stationed near the Academic Block 3 gate.
+In a big place like this, with so many students rushing around all the time, it’s very easy to feel invisible. You're just one more person in the crowd, one more ID card to be flashed. We walk past people all day, lost in our own thoughts, worried about exams, assignments, or what our friends are thinking. Most of the time, we are just faces to each other. We say "thank you" to the staff, but it's all part of the routine.
+But this one watchman is different.
+I can’t even remember when it started. It must have been in my first few weeks here, when I was still feeling a little lost and overwhelmed by everything. I was probably walking back from my classes in AB3, feeling tired and maybe a little bit homesick, just wanting the day to be over.
+As I was walking past his post, he didn't just nod. He looked at me, really looked at me, and asked, "Did you eat your food?"
+I was so surprised. I think I just stopped for a second. It wasn't a question I expected from a watchman. I think I mumbled "yes" and just kept walking, feeling a bit confused. Why would he ask me that?
+But it happened again the next day. And the day after that.
+Now, it has become our little ritual. Every day, or at least most days I pass him, he will ask me. "What did you eat today?" or "How was the food?"
+It’s such a simple, small thing. It’s just a few words. But it has become a moment in my day that I actually look forward to. It’s a small checkpoint that reminds me that someone notices I’m here.
+The best part, the part that really touches my heart, is what he says when I complain. Being in a hostel, the mess food isn't always great. We all complain about it. It’s the easiest topic of conversation. So some days, when he asks "How was the food?" I’ll make a face and say, "It was not nice today at all."
+I expect him to just nod, or maybe laugh. But he doesn't. He gets this serious, kind look on his face. He’ll say, "It’s okay, it’s okay. You guys are young. You have to learn to live with it."
+At first, I thought that was a bit of a strange reply. But he always explains. He’ll continue, "This is part of life. Not everything will be exactly how you like it. You are here to study, to become strong. You have to learn to adjust."
+And then he always, always gives me the most important advice. "At least eat for your strength," he’ll say, "not for the taste. Your body needs the energy. Your brain needs the energy for studying. If you don't eat, how will you be strong? How will you study?"
+This one line—"eat for your strength, not for taste"—has stuck with me so much. It’s something my own parents would say. It’s such a practical, caring, and real piece of advice. He’s not just listening to my small complaint; he’s giving me a life lesson. He’s reminding me of what’s important.
+He doesn't stop there. He will always add one more line, and he says it with such firmness, like a father giving a rule. "Don't even skip your meals. Whatever they give, eat something. Don't go to bed on an empty stomach. It's not good for your health."
+Every time he says this, I feel this wave of warmth. Here is a man who is not my family. He is not my relative. I am just one of the hundreds of students who walk past him. He has a job to do, which is to guard a gate. But he does so much more than that.
+He talks to me like I am his own child.
+That is the only way I can describe it. The way his voice changes, the way he leans forward a little to give this advice, the look in his eyes... it’s not the look of a stranger. It’s the look of someone who genuinely cares. He’s not just making small talk to pass the time. He is actively looking out for me, for my well-being.
+He gives me other advice too. Sometimes he’ll see me walking late and ask, "Why so late? Go to your room, study, and sleep on time." Or he’ll just ask, "Everything okay? You are studying well?"
+These small interactions mean more to me than I can possibly say. Being away from home is hard. You have to be your own parent. You have to force yourself to eat when you don't want to, to sleep when you’d rather watch movies, to study when you're feeling lazy. And most of the time, no one is there to check on you.
+But for me, I have this watchman. He is my unexpected guardian. He is a small piece of "home" in this big university. He reminds me that I need to take care of myself. He reminds me that even simple, boring food has a purpose.
+I feel so much gratitude for him. He makes my day better, every single time. His kindness is a small, bright light. He’ll probably never know how much his simple questions and his fatherly advice mean to me. He’ll never know that he’s making this journey of being a student away from home just a little bit easier, a little less lonely.
+He’s not just a watchman. He’s a wonderful human being who is choosing to be kind, to be caring, and to look out for the "kids" around him.
+I hope he knows that he is appreciated. I am so, so grateful for him.<br>
 <br>
 person 2: warden muthu
-I want to write down how grateful I am for one of our hostel wardens, Mr. Muthu.
-It all started on a random night not too long ago. I was walking to the mess for dinner, and he just started a conversation with me. He asked where I was from, and when I said "Tiruppur," he got kind of excited. He asked where exactly in Tiruppur, and then he asked what my father does.
-I told him I don't have a father. The moment I said that, he was so kind. He immediately changed the topic so I wouldn't feel bad or worried. He started telling me that he worked in Tiruppur for 10 years and began sharing his own stories about his life. It really meant a lot to me how he handled that.
-Ever since that night, he's different with me than just a normal warden. He always asks me if I've eaten or if I need any help with anything.
-It makes me feel really cared for. He doesn't just act like a warden doing his job; he genuinely seems to care about me. I'm very, very grateful for his kindness.<br>
+I really need to write this down, because I don't ever want to forget it. Today, I'm feeling so much gratitude for one of the wardens here in the hostel, Mr. Muthu.
+When you first come to a hostel, you have this idea of what a warden is supposed to be. They are the rule-keepers, the authority. They are the ones who do the rounds, the ones you make sure to be quiet around, the ones who you hand in your leave forms to. We have a lot of wardens here, and most of them are exactly like that. They are just doing their job. You see them, you nod, and you move on. They are part of the system, not part of your life.
+I never, ever expected to feel "grateful" for a warden. It just wasn't a category of person I thought I would build any kind of connection with. But Mr. Muthu is completely different.
+It all started on what I thought was just a normal, random day. It was night, and I had come back from my classes. I was feeling tired, probably thinking about assignments or just the general stress of the day. I was walking to the mess, just going through the motions to get dinner. It's a walk I do every single day, and I'm usually just lost in my own thoughts.
+Mr. Muthu was there, and as I was walking past, he started a conversation. It wasn't the usual "where are you going" or a sharp "it's getting late." It was just a simple, friendly question. "Where are you from?"
+I was a little surprised, but I answered, "I'm from Tiruppur, sir."
+The change in him was instant. He didn't just nod. He got this big, excited smile on his face. "Tiruppur!" he said, like it was a wonderful piece of news. "In Tiruppur, where from?"
+I told him my place, a smaller area he might not even know. But it was just so nice to see someone get happy about my hometown. When you are so far away from home, hearing its name feels good, and seeing someone else light up about it feels even better. It makes the world feel a little smaller, a little friendlier.
+We were just talking, and then he asked another simple, normal question. "What is your father doing?"
+This is a question I always find difficult. It's a normal question for anyone to ask, but for me, the answer is heavy. I had to pause for a second, and I told him the truth. "I don't have a father, sir."
+The moment I said it, I was preparing for the usual reaction. People get awkward. They say "Oh, I am so sorry," and their face fills with pity, and suddenly the conversation becomes heavy and sad, and I just feel... bad. I was bracing for that moment.
+But it never came.
+What Mr. Muthu did in that next second is something I will never forget. It was the kindest, most thoughtful thing.
+He didn't miss a beat. He didn't make it awkward. He didn't make me feel worried or sad. He just... changed the topic, so fast and so smoothly, just for me. He sensed, in that one second, that this was a painful topic, and he just... protected me from it. He didn't want me to worry or feel sad.
+He immediately went right back to their first connection: Tiruppur.
+He said, "Ah, is that so? It's okay, it's okay," in a kind, brushing-it-off way. And then, "You know, I worked in Tiruppur for 10 years!"
+And just like that, the conversation was safe again. It was happy again. He started to share his story with me. He told me about his time there, what he used to do, and a little bit about his life. He wasn't just a warden anymore. He was a person, with a whole history, and that history was connected to my home.
+We must have stood there talking for a while. I went to the mess after that feeling... different. I felt seen. I felt cared for, in a way that was so unexpected. He wasn't just a man doing his job. He was a kind man who saw a student, a kid from a town he knew, and he showed me real, genuine compassion. He handled that one difficult moment with more grace and kindness than I’ve seen from most people.
+I thought that might be it. Just one nice conversation.
+But it wasn't.
+Ever since that night, something has changed. He's not just another warden to me, and it feels like I'm not just another student to him.
+Every time he sees me now, he checks in. He will stop me and ask, "Did you eat your food?"
+That one question. It's the same question my family would ask. It's such a simple, basic thing, but in a hostel, it means everything. It's a way of saying, "Are you taking care of yourself? Are you okay?" It's a reminder that someone is looking out for my basic well-being.
+And he'll always add, "Do you need any help? Anything you need, just tell me."
+Coming from a warden, that offer is huge. It's an open door. It makes this big, new, and sometimes scary place feel safer. It makes me feel like if I ever really had a problem, there is someone I could go to. Not just an "official" I have to report to, but a person who would actually listen and want to help.
+He doesn't act like a warden to me. He just... cares. He cares about whether I've eaten. He cares about whether I need help. He remembers me. He remembers our conversation.
+I am just so, so grateful for him. He has no idea how much that one conversation meant to me. He has no idea how much his small questions every day mean to me. He has shown me a kindness that I never expected to find here, and it has made my entire hostel experience feel warmer. He's a truly good man.<br>
 <br>
 person 3: cr(pranay)
-I feel so incredibly lucky and grateful for my friend, Pranay.
-When I first joined, he was just my Class Representative (CR), and I didn't really know him that well. But now, after just a few months, he's become one of my closest friends.
-It's hard to pick one day or time to talk about, because we're pretty much always together. He genuinely cares about me and always helps me out with studies. We have this amazing system with notes—if I'm absent, he'll sincerely take notes for both of us, and I do the same for him. It's such a relief to know someone has your back like that.
-After coming to the hostel, things were tough sometimes, and he was the person I could actually cry to about my personal problems. He just listened and was there for me.
-It's only been about three months, but it honestly feels like we've been friends for 10 years. I can't really put into words how thankful I am to have him, not just as our CR, but as my best friend.
-
-
-
+I'm sitting down to write this, and my heart feels so full that I’m struggling to find the right words. I want to write about my friend, Pranay. It’s funny, because "friend" doesn't even feel like a big enough word anymore. He’s my best friend.
+It’s only been three months. Just three months since we all came here, to this new college, this new hostel, this new life. Three months is nothing. It’s just a season. But when I think about my friendship with Pranay, it feels like I’ve known him for ten years. It’s the strangest, most wonderful feeling.
+I remember when we first started. He was just our Class Representative. He was "Pranay, the CR." He was the responsible one, the one who made announcements, who talked to the professors, who seemed to have everything under control. I didn’t really know him. To be honest, I was a little bit intimidated, and also just busy trying to find my own way. He was just another person in the class, a name I had to learn. We weren't close at all. I never would have guessed that this "CR" would become the most important person to me here.
+I can’t even pinpoint the exact day it changed. There was no big moment, no dramatic event. It just... happened. Little by little. Maybe it started with a small "hello" outside of class. Maybe we got paired for a small assignment. Maybe we just ended up sitting next to each other in the mess one day.
+But "after some days," like the user said, I just realized he was the one I was talking to the most. He was the one who listened.
+He started to care. I mean, genuinely care. It wasn't just "how are you" as a way of saying hi. He would ask, "How are you?" and then wait for the real answer. If I seemed quiet, he’d notice. He’d ask if I’d eaten, or if I was stressed about an exam. He started to look out for me.
+And he helps me so much with my studies. I was so worried about keeping up with the classes, but having him by my side makes it all feel possible. We have this perfect system, and it’s one of the things I am most grateful for. We both know that if one of us is absent, the other one has our back.
+I remember this one time I was feeling really sick and couldn't go to class for a whole day. I was so stressed. I was thinking about all the notes I was missing, especially for that one really difficult subject. I was worried I’d be completely lost. But when I got back, before I could even ask, Pranay just handed me his notebook. "I made a copy of all the notes for you," he said.
+And he had. He had "sincerely" taken notes not just for himself, but for me. They were so neat, so clear. He had written down everything the professor said, and even added little side notes on what was important. It wasn't just a favor; it was a real act of care. He knew I was worried, and he just took that worry away. We do this for each other all the time now. It’s this unspoken promise. I take notes for him, he takes notes for me. It feels like we're a team, and I am so, so thankful for that.
+The user says, "there is no particular date or time to mention as we were together almost all time." That is exactly how it feels. We walk to class together, we sit together, we complain about the mess food together, we study in the library together, and we walk back to our hostels together. He's just... there. He's a constant, steady presence in my life. It’s so comforting.
+But the real reason I can't express my gratitude in words, the real reason this three-month friendship feels like a ten-year bond, is because of what happened a few weeks ago.
+Coming to the hostel has been hard. It’s a huge change. You're away from your family, your home, and everything that’s familiar. Some days are exciting, but some days are just... heavy. I was having one of those really heavy days. Something personal was bothering me, and I was missing home, and I just felt overwhelmed by everything.
+I was trying so hard to hold it together. I didn't want anyone to see me upset. But Pranay knew. He just looked at me and quietly asked, "Are you okay? Really?"
+And that was it. I just couldn't hold it in anymore. After we got back to the hostel, I just broke down. I cried. I cried about my personal reasons, about feeling lonely, about everything. And Pranay… he just sat there with me. He didn't say much. He didn't try to give me advice or tell me to stop crying. He just stayed. He listened to me. He let me be upset, and he didn't judge me. He was just my friend.
+To be able to be that vulnerable with someone, to show them the messy, sad parts of yourself, and to have them just sit with you... that’s everything. In that moment, he stopped being just my classmate or my study partner. He became my family here. He was the person I could be my true self with, even when I was a mess.
+I will never, ever forget that. I don't know what I would have done without him that day.
+So, when I say I'm grateful for him, it's not just because he's the CR. It's not just because he helps me with notes. It's because he's the kindest, most caring person I've met here. He’s the person who makes this whole big, scary college experience feel safe.
+It's only been three months, but we've shared so much. We've laughed so hard we couldn't breathe, we've stressed over exams, and we've supported each other when things were tough. He truly is my best friend.
+I really can't find the right words to say thank you to him. I just hope he knows how much his friendship means to me. I am so, so, so grateful for you, Pranay.
