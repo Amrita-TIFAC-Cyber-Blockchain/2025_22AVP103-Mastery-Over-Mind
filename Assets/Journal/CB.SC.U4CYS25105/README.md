@@ -7,11 +7,14 @@
 
 ## Journal Record
 
-
+Scenario 1 (after joining campus)
 After coming here I had many self-doubts about myself, but I’m really lucky to have my roommates who are understanding, caring, and supportive even though we are separated by language.
-
 -Harshitha wakes me up every morning with a smile. She helps me a lot in my subjects and always encourages me. We enjoy listening to music in different languages and often sing together.
-
 -Whenever I feel alone or low, Nethra stands by me and lifts my mood instantly. She is a very energetic and positive girl who always brings good vibes. I share everything with her until my heart feels light, and she never fails to make me laugh again.
-
 -Mansi is the girly girl who makes me smile every single day. I truly enjoy every moment spent with her because she brings fun and liveliness to the group. She makes me feel confident and comfortable to be my true self, and her presence brightens my day.
+
+Scenario 2 (last week)
+Whenever I am depressed and want to cry aloud i talk to my friend Amirtha from other department.She is always available for me and never judge me.I sometimes wish it would be nice if she was also my department.
+
+Scenario 3 (last month)
+I saw one of my senior accidently in campus and we talked a lot abiut academics. He gave many guidance and helped me lot.Even though he us from other department he is always helping and supportive.
