@@ -89,7 +89,7 @@ Scenario 3
 Mr. Sibi's Guidance During SIH Confusion
 Date: September 14th, 2025
 
-September 14th was chaotic for multiple reasons, but one of the most stressful moments was dealing with our Smart India Hackathon problem statement crisis. SIH—Smart India Hackathon—is this huge hackathon conducted by the Indian Government where student teams solve real problems submitted by big companies and government organizations. It's a big deal, and our team "Hustle Squad" had already finalized our problem statement weeks ago. We thought we were all set. But then Mr. Sibi, our mentor, told us we needed to change it at the last minute, and I panicked. Looking back now, I'm incredibly grateful for her guidance during those stressful hours, because he helped us find a much better problem that actually made sense for first-year students.
+September 14th was chaotic for multiple reasons, but one of the most stressful moments was dealing with our Smart India Hackathon problem statement crisis. SIH—Smart India Hackathon—is this huge hackathon conducted by the Indian Government where student teams solve real problems submitted by big companies and government organizations. It's a big deal, and our team "Hustle Squad" had already finalized our problem statement weeks ago. We thought we were all set. But then Mr. Sibi, our mentor, told us we needed to change it at the last minute, and I panicked. Looking back now, I'm incredibly grateful for his guidance during those stressful hours, because he helped us find a much better problem that actually made sense for first-year students.
 
 Let me give some context about our team first. Team Hustle Squad consisted of six members: me (S. Ashvinsai) as team leader, Mahilesh P, Vishaak K.K., S. Shivani Sree, Adhi Arunasalam A, and B. Sanjai. We're all first-year B.Tech Cyber Security students, which means our technical knowledge is limited to what we learned in school and the few months of college so far. We're eager and motivated, but we're also realistic about our capabilities.
 
@@ -103,9 +103,9 @@ That hit hard. he was absolutely right, but it also meant we had to start over. 
 
 I immediately started messaging everyone in the team. "We need a new problem statement NOW. Start looking. Send suggestions." We were all in different places—some on buses, some at home, some already in class. The coordination was chaotic. Everyone started browsing through the SIH problem statement list, sending ideas back and forth in our WhatsApp group.
 
-During this whole chaos, I stayed on the phone with mr. Sibi. he wasn't just telling us "find something else"—he was actually guiding us through the thought process. he asked questions that made us think differently about what we should be looking for. he said, "As first-year students, what do you actually have? You have enthusiasm, you have basic programming skills, you have fresh perspectives. What you don't have is access to enterprise-level data or years of specialized knowledge. So find a problem that plays to your strengths, not your weaknesses."
+During this whole chaos, I stayed on the phone with mr. Sibi. he wasn't just telling us "find something else"—he was actually guiding us through the thought process. He asked questions that made us think differently about what we should be looking for. he said, "As first-year students, what do you actually have? You have enthusiasm, you have basic programming skills, you have fresh perspectives. What you don't have is access to enterprise-level data or years of specialized knowledge. So find a problem that plays to your strengths, not your weaknesses."
 
-he asked us, "What technologies are you learning right now in your courses? What interests your team? What problems can you solve with the resources you actually have?" These questions shifted our whole approach. Instead of picking something that sounded cool but was unrealistic, we started looking for problems that matched our actual skill level.
+He asked us, "What technologies are you learning right now in your courses? What interests your team? What problems can you solve with the resources you actually have?" These questions shifted our whole approach. Instead of picking something that sounded cool but was unrealistic, we started looking for problems that matched our actual skill level.
 
 We went through about ten different problem statements. Some were too hardware-focused—we're software people. Some required knowledge of specific industries we knew nothing about. Some were just too complex for first-years to handle. We kept eliminating options, getting more and more stressed as the clock ticked.
 
@@ -125,11 +125,12 @@ We finalized our decision. I filled out the Microsoft Forms, submitted problem s
 
 What I'm most grateful for is how mr. Sibi handled the situation. he could've just let us continue with the travel app and let us fail or struggle. But he cared enough to intervene, even at the last minute. he didn't just say "this is wrong, find something else." he guided us through the thinking process. he asked questions that made us evaluate our options critically. he helped us understand not just what to build, but why certain choices were better than others.
 
-Her mentorship taught me something important about decision-making, especially in technical projects. It's easy to get excited about an idea that sounds cool or impressive. But you have to 
+His mentorship taught me something important about decision-making, especially in technical projects. It's easy to get excited about an idea that sounds cool or impressive. But you have to 
 honestly assess: Do I have the resources to do this? Does this solution already exist? Am I adding value or just recreating something worse? These are hard questions, but they're necessary.
 
 The SIH project is still ongoing. We're working on developing the chatbot, integrating it with WhatsApp, training it on health data specific to Indian context. It's challenging, but it feels meaningful. Every time we work on it, I remember that afternoon on the bus, the panic of having three hours to pivot completely, and mr. Sibi's calm guidance through the chaos.
 
 I'm grateful to mr. Sibi for pushing us to think critically and for not letting us pursue a doomed project just because we'd already invested time in it. Sometimes the best mentorship isn't
 about encouragement; it's about honest, timely intervention. he saw something we couldn't see, spoke up even though it created short-term stress, and ultimately guided us toward something better. That's what good mentors do—they don't just support your decisions; they challenge you to make better ones.
+
 
