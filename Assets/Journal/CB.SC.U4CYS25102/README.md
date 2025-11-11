@@ -15,3 +15,19 @@ I'm thank full for my FIH sir Mr Karthik Sharma Sir. I love to listen his class,
 Date:22-09-25
 What can be more better than writing for my very own SIH mentor Sir Ramguru Sir. He was our mentor and helped me and my team when ever we have doubts in hackaton. He is very funny person as well as the most angriest person if something happens. Also his MAOM Classes are alo so refreshing and really help me to stay calm and cool.
 
+Date:08-08-2025
+Pranay my roommate and my old friend we joined in same university amrita without knowing eachother. By supprise we both joined same department and guess what we are roommates. We share lot of things regarding acadamics and every fun activities.
+
+Date:16-08-25
+Dheeraj my roommate also my we both became good friends after joined here and we are good friends now.
+
+Date:08-08-25
+Charan our master he is my roommate and my classmate he is topper and ready very well and got amany good marks in mid term. He explains me everytime when i go to him if i have any doubt.
+
+Date:08-08-25
+Sridhar my friend who became very close friend to me after joined here and he is the best and sweet guy
+
+Date:25-08-25
+Praveen sir my class advisor he helped me to go home after gokulastami for apply home pass and everything and im thank full for him.
+
+
