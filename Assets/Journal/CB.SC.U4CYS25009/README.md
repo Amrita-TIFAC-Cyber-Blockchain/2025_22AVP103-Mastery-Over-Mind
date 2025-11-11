@@ -6,7 +6,5 @@
 
 
 ## Journal Record
-My Gratitude Journal:
-1. I am grateful for Srinivasan Sir who lets me sleep in classes when I'm sleepy.
-2. I am grateful for the cleaning servents in this college who keeps the environment clean and neat like home.
-3. I am grateful for my Class Advisor Sreejith Sir for adressing our class and solving our problems.
+My Gratitude journal:
+I am grateful to Srinivasan Sir, who understands his students and allows me to rest in class when I feel sleepy. I am also thankful to the cleaning staff of our college for maintaining a clean and homely environment for all of us. finally, I truly appreciate my Class Advisor, Sreejith Sir, for guiding our class, addressing our concerns, and helping us solve our problems with patience and care.
