@@ -14,7 +14,9 @@ Topic:writing about three people to whom I am grateful for meeting them in my in
              The three people I am gratefultfor meeting them in the college are madhu(my friend), abhijeet (my senior) and dama srinivas (my teacher).
 
 scenario 1. my friend-madhu 
-                 I am grateful to meet madhu during my intermediate education. he was the one person who always keep on helping me in my problems and struggles that I faced in my intermediate time that are related to my education or my life also. He helped me in learning all the basics of every topic of every subject that are helped me in the competitive exams that I faced, he was always been a source of positivity and support.He has been my roommate and one of my closest companions in college. His friendly and joyful nature makes every day more cheerful and positive. Whenever I felt stressed or demotivated, he was always there to lift my spirits. His constant encouragement and positive attitude helped me regain confidence and stay focused on my goals. I have learned from him the importance of staying happy and spreading positivity even in difficult situations. I will always remember his inspiring words that keep motivating me to move forward in life.
+                 I am grateful to meet madhu during my intermediate education. he was the one person who always keep on helping me in my problems and struggles that I faced in my intermediate time that are related to my education or my life also. He helped me in learning all the basics of every topic of every subject that are helped me in the competitive exams that I faced, he was always been a source of positivity and support.He has been my roommate and one of my closest companions in college. His friendly and joyful nature makes every day more cheerful and positive. Whenever I felt stressed or demotivated, he was always there to lift my spirits. His constant encouragement and positive attitude helped me regain confidence and stay focused on my goals. I have learned from him the importance of staying happy and spreading positivity even in difficult situations. I will always remember his inspiring words that keep motivating me to move forward in life.Spending time with him i realised that it is really important to take care of both our health and mind equally. I have been able to realise that sitting with a book 24/7 alone won't help you achive great heights , a good fitness is nessasary to maintain our energy and gain respect throught our success journey.
+
+
 
 
 scenario 2. my senior-abhijeet              
@@ -25,6 +27,7 @@ scenario 3. my professor-dama sir
 
 
               meeting this three people in my intermediate level is more meaningful and fulfilling. they have contributedmin improve and getting a great attitude from myself.
+
 
 
 
