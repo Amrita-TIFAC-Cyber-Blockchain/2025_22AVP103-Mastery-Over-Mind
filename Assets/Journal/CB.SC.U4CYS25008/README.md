@@ -14,4 +14,4 @@ after joining here from the frist day iam greatful for some people from our clg 
 
 3. Our senior pushpak who had shown me the whole college and made up my gym routine and gave me some sources to study
 
-meeting this three people in my intermediate level is more meaningful and fulfilling
+meeting this three people in my intermediate level is more meaningful and fulfilling. they have contributedmin improve and getting a great attitude from myself.
