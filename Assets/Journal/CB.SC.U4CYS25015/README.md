@@ -46,7 +46,7 @@ the farewell ceremony, we sat together in our favorite spot near the campus libr
 — the fights, the fun, the fear before exams, and the pride of achievements. It struck me that what made our bond so special was not just shared interests but 
 shared growth. We had witnessed each other’s evolution — from naïve teenagers into responsible young adults. That kind of shared history is priceless.Today, as I 
 write this journal, I feel immense gratitude toward harshini, supragna, and valli. They were more than just friends; they were my teachers in their own ways.
-Aditya taught me perseverance, harshini taught me compassion, and supragna taught me calmness. They made my engineering journey more meaningful than any textbook
+Supragna taught me perseverance, harshini taught me compassion, and supragna taught me calmness. They made my engineering journey more meaningful than any textbook
 ever could. Even now, though we’ve gone our separate ways — with different jobs, cities, and dreams — our bond remains intact. We still talk almost every weekend,
 sharing updates, jokes, and occasional nostalgia about our college days.What I’ve learned from this friendship is that gratitude isn’t limited to grand gestures
 or special occasions. It lives in the everyday — in shared laughter, mutual support, and small acts of care. The friends I met during my B.Tech taught me that
@@ -163,6 +163,7 @@ challenges.Her continuous encouragement, discipline, and compassion have shaped 
 value of sincerity, respect, and perseverance. I thank Ms. Rohini from the bottom of my heart for her endless efforts, for believing in us, and for making our 
 class a place of positivity and growth.She is truly a role model — someone who inspires through her actions and leads with her heart. I will always remain 
 grateful for her support and guidance, which have made my journey as a student more meaningful and memorable.
+
 
 
 
