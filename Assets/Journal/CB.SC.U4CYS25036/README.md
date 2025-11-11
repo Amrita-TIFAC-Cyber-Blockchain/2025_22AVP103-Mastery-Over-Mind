@@ -7,9 +7,9 @@
 
 Scenario: 1
 Date: August 6  
-Whom: Karthik   
-On the first day of college, I met my friend Karthik, who later became my roommate in the hostel I was so glad to see him as my roommate and i was wondered . Meeting him that day  made me so grate in that  new environment. As we started talking, we shared our thoughts, ideas, and experiences from school. I realized we had similar ways of thinking, which made our bond so strong.  
-Our friendship grew quickly as we discovered we shared common interests in academics, sports, and hobbies. We often discussed our goals and supported each other in achieving them. Over time, Karthik became more than just a roommate; he became my best friend.  
+Whom: reventh  
+On the first day of college, I met my friend reventh, who later became my roommate in the hostel I was so glad to see him as my roommate and i was wondered . Meeting him that day  made me so grate in that  new environment. As we started talking, we shared our thoughts, ideas, and experiences from school. I realized we had similar ways of thinking, which made our bond so strong.  
+Our friendship grew quickly as we discovered we shared common interests in academics, sports, and hobbies. We often discussed our goals and supported each other in achieving them. Over time, reventh became more than just a roommate; he became my best friend.  
 This experience showed me how important open communication and understanding are for building strong relationships. Since that day, we have continued to help each other, enjoy every moment together, and create many memorable experiences that have enriched my college life.  
 
 
