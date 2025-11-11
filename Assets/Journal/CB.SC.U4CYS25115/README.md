@@ -7,10 +7,10 @@
 
 ## Journal Record
 scenario 1 :-
-I want to express my gratitude to my friend Srihas, who sits beside me in class. From the very beginning of my journey at Amrita, whenever I faced any difficulty in understanding something, he would patiently explain it to me in a very simple manner, without any hesitation.
-I still remember one day in math class when I couldn’t understand a particular problem. I asked him multiple times, and without any anger or frustration, he explained it to me again and again. What I admire most in him is his patience and willingness to help others.
-He never makes me feel silly for not understanding something. His help has made me feel more confident in my classes. I am really lucky to have him as my friend and desk partner. He is a very kind person who truly cares about people. His support has made my whole journey at Amrita much better.
-He is smart, but he's also humble and approachable. He always makes sure I've understood before moving on. It's great to have someone so dependable sitting right next to me. His positive attitude makes even difficult classes more enjoyable. I've learned just as much from his kindness as I have from his explanations.
+I want to express my gratitude to my friend Srihas, who sits beside me in class. From the very beginning of my journey in Amrita, whenever I have faced any difficulty in understanding something, he would patiently explain to me in a very simple manner, without any hesitation.
+I still remember one day in maths class, when I could not understand a particular problem. I have asked him multiple times, without any anger or frustration, he explained it to me again and again. What I admire most in him is his patience and willingness to help others.
+He never make me feel silly for not understanding something. His help had made me feel more confident inthe class. I am really lucky to have him as my friend . He is a very kind person who truly cares about the people. His support made my whole journey in Amrita much better.
+He is smart, but he also humble and approachable. He always makes sure I've understood before moving on. It is great to have someone who set beside me is trutable and we can dependon him. His positive attitude makes even difficult classes more eassy. I have learned just as much from his kindness as I have from his explanations.
 
 
 scenario 2 :-
@@ -29,3 +29,4 @@ He never makes me feel like I'm bothering him, no matter what I ask. I know I ca
 I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without a second thought. Having a roommate like him has made my hostel life so much better, and I'm just really thankful to have him as a friend.
 
 "I can't say in words how important they are in my life."
+
