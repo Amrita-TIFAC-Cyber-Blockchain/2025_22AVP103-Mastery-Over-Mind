@@ -14,7 +14,6 @@ He is smart, but he also humble and approachable. He always makes sure I've unde
 
 
 scenario 2 :-
-You got it. Here is the message with five additional lines:
 I want to express my gratitude to my friend Sahith. He has helped me countless times by lending me money whenever I was in need. No matter the situation, he never hesitated. He would always say, “We’re going to be here together for four years — you can repay me anytime.” That simple line showed me how generous and understanding he is.
 One of my favorite memories with him is during our midterm exams. I used to spend the whole day in his room, studying together. His calm presence and focus helped me stay motivated. What I like most about Sahith is his kindness, patience, and the way he always makes others feel supported.
 He never made me feel bad for asking for help. His trust in me always meant a lot. Studying with him made difficult exams feel easier. He is just a genuinely good person who looks out for his friends. His support has been a huge part of my college life. He always shares what he has without a second thought. I always felt comfortable and welcome in his room. His friendship is one of the best things about my time here. He doesn't just talk about being a good friend; he shows it. I really appreciate how he always stayed positive, even during stressful exams.I've learned a lot from him about being a calm and focused person. He’s the kind of friend you know you can trust on, no matter what. My college experience wouldn't be the same without him.
@@ -29,4 +28,5 @@ He never makes me feel like I'm bothering him, no matter what I ask. I know I ca
 I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without a second thought. Having a roommate like him has made my hostel life so much better, and I'm just really thankful to have him as a friend.
 
 "I can't say in words how important they are in my life."
+
 
