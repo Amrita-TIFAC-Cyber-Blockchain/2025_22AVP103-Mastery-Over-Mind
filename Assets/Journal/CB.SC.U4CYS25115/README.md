@@ -19,4 +19,7 @@ I’m lucky to have a friend like him.
 scenario 3 :-
 I want to express my gratitude to my roommate, Sridhar. He has always been there to help me, especially when it comes to booking train tickets. Every time I needed help.
 I still remember during Dussehra, we suddenly got two extra days of holiday. I couldn’t find any train to Visakhapatnam, but Sridhar stepped in and managed to book a ticket for me to get home. That moment really showed me his helpful and caring nature.
-And it’s not just that one time — he has supported me in many situations. I truly appreciate his kindness and the way he’s always ready to help.
+And that's just one example. It’s not just that one time; he has supported me in so many other situations, big and small. Whether I'm stressed about exams or just need someone to talk to, he's always understanding and ready to listen.
+
+I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without a second thought. Having a roommate like him has made my hostel life so much better, and I'm just really thankful to have him as a friend.
+
