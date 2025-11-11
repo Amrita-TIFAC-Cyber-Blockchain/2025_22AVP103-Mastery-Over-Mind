@@ -11,7 +11,7 @@ My gratefullness to Amma (Mata Amritanandamayi Devi)
  Amma, Your words remind me to stay calm even in challenges, to forgive, and to see divinity in everyone I meet. Every hug, every smile, and every silence of Yours holds a 
 message of peace and healing. you created such a fantasticand greeny environment for us to study
 
-To the kind girl
+To  kind girl
  I met a kind girl in the washing area who truly made my day a little brighter. I had been standing there for quite some time, feeling hesitant and struggling to ask anyone for help. I needed a washing stone, but everyone seemed busy, and I didn’t know how to approach them.
 
 Then, this girl noticed me. Without me even asking, she kindly called me over and gave me space in her washing stone. It might seem like a small act, but to me, it meant a lot. Her kindness and thoughtfulness reminded me that simple gestures can make a big difference.
@@ -24,7 +24,7 @@ They never let me feel alone — always including me, sharing laughter, and brin
 
 I’m also grateful for the way they patiently helped me with my studies — especially in Python and other subjects that I found difficult. They never hesitated to teach me, explain concepts again and again, and encourage me to do my best.
 
-Because of them, I’ve not only learned lessons from books but also lessons about kindness, teamwork, and true friendship. They’ve shown me that friends can become family when hearts connect through care and support.
+Because of them, I’ve not only learned lessons from books but also lessons about kindness, teamwork, and true friendship. They’ve shown me that friends can become family when hearts connect through care and support .
 
 
 
@@ -44,3 +44,4 @@ Because of them, I’ve not only learned lessons from books but also lessons abo
 
 
 ## Journal Record
+
