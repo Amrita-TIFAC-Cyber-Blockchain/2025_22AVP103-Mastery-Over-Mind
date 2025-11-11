@@ -4,9 +4,6 @@
 
 # 22AVP103 - Mastery Over Mind
 
-Senario: 3 Date: Aug 21 Whom: Praveen sir During one of the early days of my college life, in the first month of my B.Tech, I had the opportunity to interact with my class advisor, Praveen Sir. I belong to the Department of Computer Science and Engineering (Cyber Security). Section B, and he is the class advisor for our section. Praveen sir is very and he used to take care and resolve problems of students of our section He patiently listens to the problems faced by the students and helps them find suitable solutions.
-One day, I faced an issue logging into my university management app, so I approached him for help. He responded very kindly, guided me through the process, and helped me to resolve the issue. Whenever any student approaches him, he always responds politely and ensures that their problems are solved. This interaction made me to feel so grate towards his students.
-
 
 ## Journal Record
 Scenario: 1 Date: August 6
@@ -72,6 +69,7 @@ One memorable incident occurred a few weeks after my first interaction with him.
 Beyond academics, he often reminds us about the importance of discipline, time management, and personal development. He once told our class that technical skills are valuable, but a good attitude and character truly define a professional. Those words made me reflect deeply. Since then, I have tried to be more disciplined and responsible in my daily routine.
 
 Overall, I have learned that Praveen Sir is not just a class advisor but also a role model who shows how a teacher’s guidance can shape a student’s mindset. His humility, patience, and dedication have had a strong impact on me. Whenever I face a problem, I remember his calm approach and try to handle things with the same level of composure. I feel truly grateful to have a mentor like him during this early stage of my college journey.
+
 
 
 
