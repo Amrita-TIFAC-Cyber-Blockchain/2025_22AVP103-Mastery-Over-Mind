@@ -3,5 +3,26 @@
 </p>
 
 # 22AVP103 - Mastery Over Mind
+Scenario 1
+Date-aug 24
+whom-Bharath
+when i joined the campus, Bharath is the kind of person who’s always there when i need him. He helps everyone without expecting anything in return.Bharath has a great sense of humor  he can make anyone laugh and keeps the group lively all the time. Bharath is patient and listens to everyone. He gives honest advice and never judges others.
+
+
+
+Scenario 2
+Date-sep 1
+whom-MaOM Sir 
+When i attended the cys orientation, He explained about overthinking, how it makes our mind restless and showed us ways to keep our brain calm and focused. His words always carry wisdom and positivity. And he also give motivation to participate in hackthon and other events also.
+
+
+
+Scenario 3
+Date-aug 
+whom - roommates
+we share everything from food to fun. Living with them has taught me friendship, patience, and teamwork. We may fight sometimes, but our bond always stays strong. They make hostel life enjoyable and full of good vibes.
+
+
+
 
 ## Journal Record
