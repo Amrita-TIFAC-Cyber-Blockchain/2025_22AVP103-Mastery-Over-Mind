@@ -1,5 +1,5 @@
-<img width="787" height="324" alt="image" src="https://github.com/user-attachments/assets/fd337581-1c91-4037-b5b2-53b6e2598053" /><img width="787" height="324" alt="image" src="https://github.com/user-attachments/assets/600b1baa-528a-4291-8f8f-6b26e42b09b3" /><p align="center">
-    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+
+<img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
 </p>
 
 # 22AVP103 - Mastery Over Mind
@@ -9,8 +9,9 @@ Date: 11/11/2025 Subject: The three people I met in my college, who I'm grateful
 
 **Yuva Teja**: Yuva is my classmate and is a very good person. He doesn't give a damn about what others think about him. He focuses only on the beautiful aspects of life like making memories and living in the moment. He is a very good photographer and takes nice aesthetic pictures of the nature. Bitterness is a repeating cycle of his life which he faces calmly and steadily.
 
-**Sandilya**: Sandilya is a person who beleives in dharma and righteousness. Even though he sometimes fails to act in a dharmic and righteous manner, he accepts and learns from his mistakes. He is the person who saved my friend deepak from failing many exams and will continue to excel deepaks future. He is a man of wisedom and doesn't have any evil intentions towards anyone even though they try to hurt him.
+**Sandilya**: Sandilya is a person who beleives in dharma and righteousness. Even though he sometimes fails to act in a dharmic and righteous manner, he accepts and learns from his mistakes. He is the person who saved my friend deepak from failing many exams and will continue to excel deepaks future. He is a man of wisdom and doesn't have any evil intentions towards anyone even though they try to hurt him.
 ## Journal Record
+
 
 
 
