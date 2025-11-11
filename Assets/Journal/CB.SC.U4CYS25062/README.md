@@ -6,7 +6,7 @@
 
 
 ## Journal Record
-
+Date:11/11/25
 Name:sharvesh s
 Topic:Three people I am grateful to have met in college
 1.My friend:Divyendra 
