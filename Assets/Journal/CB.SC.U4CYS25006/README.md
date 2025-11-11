@@ -28,25 +28,92 @@ Looking back, September 2025 was not just about building a solution; it was abou
 Whenever I think about that journey, I realize that the greatest takeaway from the SIH Hackathon wasn’t a project or a certificate — it was the realization that behind every successful endeavor stands a mentor who believes in you, even before you believe in yourself. For that, I will always remain deeply grateful.
  
      
-SCENARIO 2:
+**SCENARIO 2:**
+Gratitude to my Senior - Mittul Bro 
+Time period - August 2025
+
+August 2025 holds a very special place in my heart — not because of an award, a project, or any major achievement, but because of a conversation that completely changed the way I looked at college life. It was a simple talk with my senior, Mittul bro, but the words he shared that day have continued to guide me through every challenge, decision, and success that followed. Sometimes, the right person appears at exactly the right moment to give you the clarity you didn’t even know you needed — and for me, that person was him.
+
+Before I officially joined Amrita University, I was filled with a mixture of excitement and nervousness. I had heard so many things about college — from seniors, social media, and relatives — that I didn’t know what to expect. Would I fit in? Would I be able to handle the academic pressure? Would I make friends easily? These thoughts circled in my head constantly. The transition from school life to college life felt huge, and while I was looking forward to learning more about cybersecurity, I couldn’t help but worry about how I would adapt to the environment.
+
+That’s when one of my friends introduced me to Mittul bro, a senior from the same branch — Cybersecurity — who had already made a name for himself in the department. He was known not just for his technical skills and academic performance but also for being approachable, humble, and always willing to help juniors. Initially, I hesitated to reach out, thinking he might be too busy or not interested in talking to a new student. But when I finally messaged him, to my surprise, he responded immediately and said, “Hey, don’t worry. I’ve been there too. Let’s talk.”
+
+We scheduled a short call that evening, and what I expected to be a 10-minute conversation turned into a one-hour life lesson that I will never forget. From the very beginning, he made me feel comfortable. He didn’t speak like a senior lecturing a junior — he spoke like an elder brother, patient and understanding. I told him about my nervousness, my doubts about balancing academics with social life, and my fear of not being good enough. He listened to everything carefully and then said something that completely shifted my mindset:
+“College isn’t just about studying or scoring marks; it’s about discovering who you are.”
+
+Those words hit me deeply. He explained how when he first joined Amrita, he too had been shy and uncertain, but slowly, by stepping out of his comfort zone, he discovered new passions, built strong friendships, and learned valuable life skills beyond the classroom. He told me that the real magic of college life happens when you open yourself up to experiences — joining clubs, participating in events, collaborating on projects, and even making mistakes along the way. His words made me realize that I didn’t have to be perfect; I just had to be present and curious.
+
+Throughout our conversation, he emphasized the importance of balance. “Don’t get lost only in books or only in fun,” he said. “Enjoy your time here, but never forget why you came — to grow, to learn, and to prepare yourself for the future.” It was such a simple piece of advice, yet it carried so much weight. He explained how he had seen many students either burn themselves out by focusing only on grades or lose focus by getting too distracted with college life. His approach was practical and wise — to treat academics and enjoyment as two sides of the same coin. Listening to him, I could sense his maturity and clarity, and it motivated me to adopt the same mindset.
+
+One thing that stood out about Mittul bro was how elaborate and thoughtful his answers were. I remember asking him how he managed to build such a strong network and reputation in the cybersecurity community. Instead of giving a short answer, he walked me through his entire journey — from attending his first technical workshop to networking with professors and alumni, and even participating in hackathons that helped him gain real-world exposure. He explained how every conversation, every collaboration, and every friendship had helped him grow both professionally and personally. “Connections aren’t built overnight,” he said, “but if you genuinely care about people and share knowledge without expecting anything in return, you’ll naturally attract the right circle.”
+
+That part of our talk changed the way I viewed networking. I had always thought of it as something formal or intimidating, but he made it sound natural and meaningful — something rooted in mutual respect and curiosity. Since then, I’ve tried to follow his advice: talking more openly to classmates, participating in discussions, and even reaching out to seniors for guidance without hesitation. And every time I do, I silently thank him for showing me that small interactions can lead to big opportunities.
+
+Another aspect of our conversation that left a lasting impression on me was when he spoke about health. He said something I didn’t expect to hear from a cybersecurity senior: “Don’t let your health take a backseat. Coding all night won’t help if you burn out mentally or physically.” He told me how, during his early semesters, he ignored his well-being while preparing for competitions and ended up feeling drained. That was when he learned that self-care isn’t a luxury — it’s a necessity. It was refreshing to hear such honesty, and it made me realize that success in college isn’t just about skills or knowledge — it’s also about sustaining yourself through the journey.
+
+As our conversation ended, he reminded me of one last thing: “Never compare your path with someone else’s. Everyone’s timeline is different.” That sentence has stayed with me ever since. In the months that followed, whenever I faced moments of doubt or felt like I wasn’t progressing fast enough, I remembered his words and found comfort in them. It’s incredible how a single conversation, held over a simple phone call, can leave such a deep imprint on your thinking.
+
+Since that day, I’ve continued to stay in touch with Mittul bro. Every time I have a question — whether it’s about a project, a coding challenge, or even personal advice — he takes the time to explain things clearly and patiently. He never gives rushed answers; instead, he shares experiences, lessons, and stories that make his guidance truly meaningful. I feel lucky to have a senior like him, someone who genuinely cares and leads by example.
+
+Looking back now, I realize how that one conversation in September 2025 changed not just my approach to college but also my outlook on life. It taught me that guidance doesn’t always come from books or lectures — sometimes, it comes from people who have walked the same path and are kind enough to share their light. I’m deeply grateful to Mittul bro for being that guiding light — for his patience, his wisdom, and his willingness to help without expecting anything in return.
+
+When I think about my college journey so far, I can see how his advice shaped so many of my decisions — from joining clubs to maintaining balance between academics and personal growth, to taking care of my health. He made me realize that success isn’t just about achievements; it’s about how you grow as a person along the way.
+
+Every time I see him around campus, I’m reminded of that first conversation — the one that started with nervousness and ended with confidence. It’s amazing how someone’s words can change the course of your thoughts so profoundly. I will always remain thankful to Mittul bro — not just as a senior, but as a mentor and a friend who showed me how to make the most of my college life with purpose, positivity, and passion.
+
+**SCENARIO 3:**
+Grateful to all my friends who make every day in college special - Shivani, Kavya, Ridhanya, Harshini, Deva, Sanjana, Pranay, Rohith, Siddharth, Pranav, Anjana
 
 
+When I think about my college life, the first thing that comes to my mind is not just the lectures, assignments, or exams — it’s the people who make every single day brighter. I’ve always believed that college is not only a place to learn academics but also a space to discover friendships that make life meaningful. Each day brings new moments, laughter, and memories that become stories to cherish forever. I feel genuinely grateful for the wonderful friends I’ve met here, each of whom has added something special to my journey and made me a better version of myself
 
+**My Friend Shivani**
 
+It all began with Shivani — the first person who made my college journey feel comfortable and familiar. I still remember August 2025, the very first day I traveled to college on the bus. I was nervous, carrying my bag, scanning for a seat when a girl smiled, moved her bag from the seat next to her, and said, “You can sit here.” That small act of kindness changed everything. We started talking during that bus ride, and within minutes, it felt like I had known her for years. She’s from my branch, and we quickly discovered how easily our conversations flowed — from classes to hobbies to random jokes. Shivani is an open-minded, frank, and genuine friend who shares everything directly and honestly. Her openness has taught me to be more expressive and comfortable with myself. That day, by pure coincidence, I sat beside her — and it turned into one of the most beautiful friendships of my life. I hope this bond lasts forever because she’s truly someone who makes my days brighter just by being around.
 
+**My Friend Kavya**
 
+If I had to describe Kavya in one sentence, I’d say she’s like my twin soul in college. Even though we’re part of a big friend group, Kavya and I share something a little extra — a closeness that feels effortless. Recently, we’ve grown even closer, and I’ve realized how comforting it is to have someone who understands you without many words. She’s the kind of friend who instantly gets your mood, whether you’re excited, anxious, or tired. Her presence feels like calm energy — always kind, always supportive, and always there when needed. I often think how lucky I am to have found someone who mirrors so many of my thoughts and emotions. She’s not just a friend; she’s my college twin, and our friendship is something I truly treasure
 
+**My Friend Ridhanya**
 
+Then there’s Ridhanya, the charming girl of our class — full of life, laughter, and contagious energy. She’s the kind of person who walks into a room and instantly lights it up. Whenever she’s around, I automatically feel energized and happier. Her cheerful personality and positive attitude make even boring days interesting. I admire her ability to stay active and engaged in everything she does — whether it’s participating in events, helping friends, or just spreading joy with her laughter. She has this rare ability to make everyone feel included, and her vibe is truly inspiring. Having her as a friend reminds me that life’s better when you fill it with enthusiasm and kindness.
 
+**My Friend Harshini**
 
+Harshini, our class CR, is another person I’m deeply grateful for. She’s calm, casual, and effortlessly cool — someone who manages responsibilities with ease. I absolutely love her walking style; it perfectly matches her composed personality. She’s also my binge-watching partner, and our story is hilarious — we started watching a movie together on the very first day of college, and to this day, we still haven’t finished it! But that’s what makes it so fun. Our conversations are relaxed, our bond is effortless, and there’s always laughter whenever she’s around. Harshini brings a sense of peace and balance to our group, and I know that no matter what, she’ll always be someone I can rely on.
 
+**My Friend Deva**
 
+Every friend group needs a spark — and for us, that’s Deva. She’s the sound party of our gang, the one who fills every silence with laughter, teasing, and lively conversations. Without her, everything feels too quiet. She can make the most ordinary moment fun, and her sense of humor keeps everyone smiling. But beyond her playful side, Deva also has a strong, motivating personality. She often encourages me to study harder and stay focused, and that motivation has helped me many times. She’s proof that fun and responsibility can go hand in hand. Deva’s energy, wit, and warmth make our entire group more connected, and college wouldn’t be the same without her.
 
+**My Friend Sanjana**
 
+ someone who inspires me in a completely different way. She’s an incredibly talented artist, and her creativity never fails to amaze me. Every conversation with her flows naturally and lasts for hours — she just has that comforting, engaging energy that makes time fly. She’s the kind of friend who knows how to turn an ordinary chat into a meaningful memory. And I can never forget her chappathi with paneer, which I absolutely love and am always grateful for! Beyond her artistic side, Sanjana is a genuinely friendly, inspiring, and warm-hearted person, and I feel lucky to have her in my life. Her presence adds both creativity and comfort to our group, and she always reminds me how art and kindness can make life more colorful.
 
-     
+**My Friend Pranay**
+
+Pranay, our other class CR, is one of the calmest and coolest people I’ve met. Managing class responsibilities isn’t easy, but he does it with ease and confidence. He’s chill but dependable — the kind of person who stays composed no matter how stressful things get. He’s also my gaming guru — he once taught me how to play a Spider-Man game on the laptop, and that small memory still makes me smile. His ability to stay calm under pressure inspires me to do the same. I admire how he handles tasks without overthinking and still manages to enjoy every moment. People like Pranay make college life smoother and more fun.
+
+**My Friend Rohith**
+
+Then there’s Rohith, one of the nicest people I’ve met. He’s genuinely friendly, humble, and always ready to help. I’ll always remember how he helped me sort out a problem during one of our lab sessions — that moment showed me what real teamwork and kindness look like. He never makes a big deal out of helping someone, but that’s what makes his nature so pure. His presence during lunch breaks is something I look forward to; he adds warmth and comfort to our group conversations. People like Rohith remind me that small acts of help and kindness make a big difference in college life.
+
+**My Friend Siddharth**
+
+Siddharth is one of the calmest and most humble people I know. His quiet nature hides a very kind and helpful heart. He’s always willing to lend a hand, especially during exam times when everything feels chaotic. I often go to him for help or notes, and he’s always patient and supportive. His calm presence balances out the high energy of our group. Siddharth has taught me that friendship isn’t about constant noise or activity — sometimes, it’s about silent understanding and steady support.
+
+**My Friend Pranav**
+
+And finally, Pranav — the friend who’s always there to help me with subject doubts and discussions. We’ve spent many lunch breaks together, laughing, gossiping, and sharing random stories. I miss those moments whenever they don’t happen. He has this ability to make learning feel lighthearted, and his sense of humor keeps things lively even when college gets stressful. Having him around has made many academic challenges easier to handle, and I’m truly thankful for that.
+
+When I look at all these friendships — Shivani, Kavya, Ridhanya, Harshini, Deva, Pranay, Rohith, Siddharth, Pranav, and Sanjana — I realize how each one has shaped my college life in a unique and beautiful way. Every person adds a different energy, every friendship brings a different lesson, and every day becomes brighter because of them. Together, they’ve turned my ordinary college days into extraordinary memories.
+
+Each laugh, each conversation, each shared meal, and each small gesture of care has built a circle of happiness around me. These friendships have taught me that college isn’t just about classes and grades — it’s about the people who walk beside you through it all. They make my day very special, and I’m always grateful to all of them for filling my life with love, laughter, and unforgettable moments.
+
 # 22AVP103 - Mastery Over Mind
 
 
 ## Journal Record
+
 
