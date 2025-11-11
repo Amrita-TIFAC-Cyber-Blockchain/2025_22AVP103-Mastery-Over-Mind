@@ -12,10 +12,7 @@ Amma (Mata Amritanandamayi Devi)
 
 
 To  kind girl
- I met a kind girl in the washing area who truly made my day a little brighter. I had been standing there for quite some time, feeling hesitant and struggling to ask anyone for help. I needed a washing stone, but everyone seemed busy, and I didn’t know how to approach them.
-
-Then, this girl noticed me. Without me even asking, she kindly called me over and gave me space in her washing stone. It might seem like a small act, but to me, it meant a lot. Her kindness and thoughtfulness reminded me that simple gestures can make a big difference.
-
+something simple yet deeply meaningful happened — an act of kindness that reminded me how beautiful it is when strangers choose compassion over convenience. It happened in the washing area, a place that usually feels mundane and routine, but today, it became a place where I experienced genuine kindness.I had been standing for quite some time, waiting for a washing stone to become free. The washing area was crowded, and everyone seemed busy with their own chores. I didn’t want to disturb anyone or ask directly, so I just waited quietly, hoping someone would finish soon. Minutes passed, and my patience started to fade. I was tired, and honestly, a bit hesitant — I kept thinking, “Should I ask someone?” But something in me held back, perhaps shyness or just the thought that it wasn’t worth troubling others.And then, just as I was about to give up, a kind girl noticed me. She was washing her clothes nearby, and without hesitation, she called out to me. She told me there was an empty washing stone near her, one that I hadn’t noticed. Her voice was calm, warm, and sincere — it carried a tone of care that immediately comforted me. I felt such relief wash over me; her small gesture made such a big difference in that moment.But what touched me even more was what happened next. Just as I started walking toward that spot, another girl arrived at the same time and was about to use the same stone. I felt awkward and unsure about what to do — after all, she had just come, and I didn’t want to cause any conflict. Before I could say anything, the kind girl spoke up again. She told the other girl gently that I had been waiting for a long time, that I was standing there patiently, and that I deserved the turn. Her words were thoughtful and fair. She didn’t say them loudly or harshly, but in a calm and considerate way that made everyone comfortable. The other girl nodded and understood, and I was able to use the stone without any issue. I can’t express how thankful I felt in that moment. It wasn’t just about getting a washing stone — it was about being seen. When you’re struggling quietly, it means so much when someone notices and steps in to help. Her kindness didn’t just make my task easier; it lifted my entire mood. I smiled the whole time I was washing, thinking about how her simple action reflected such empathy and understanding.Afterward, I made sure to thank her sincerely. She just smiled and said, “It’s okay,” as if it was the most natural thing to do. That’s what made it even more special — she didn’t do it for attention or gratitude, she did it simply because she cared.
 
 To Anushree and Ridhanya
 I want to take a moment to express my deep gratitude to my wonderful friends who have made my life so much easier and more meaningful. When I first started feeling homesick, they were the ones who stood by me, comforted me, and made this place feel like home.
@@ -44,6 +41,7 @@ Because of them, I’ve not only learned lessons from books but also lessons abo
 
 
 ## Journal Record
+
 
 
 
