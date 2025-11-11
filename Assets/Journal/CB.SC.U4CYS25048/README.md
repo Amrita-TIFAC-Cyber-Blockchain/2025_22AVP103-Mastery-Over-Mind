@@ -3,6 +3,7 @@
 </p>
 
 # 22AVP103 - Mastery Over Mind
+## Journal Record
 person 1 : watchman
 I really want to write about how grateful I am for the watchman at the Academic Block 3 gate. I don't even know his name, but he makes my day feel a little better.
 Every day, almost like a routine, he asks me what I ate and how the food was. It's such a simple question, but it feels like someone is looking out for me.
@@ -21,4 +22,4 @@ When I first joined, he was just my Class Representative (CR), and I didn't real
 It's hard to pick one day or time to talk about, because we're pretty much always together. He genuinely cares about me and always helps me out with studies. We have this amazing system with notes—if I'm absent, he'll sincerely take notes for both of us, and I do the same for him. It's such a relief to know someone has your back like that.
 After coming to the hostel, things were tough sometimes, and he was the person I could actually cry to about my personal problems. He just listened and was there for me.
 It's only been about three months, but it honestly feels like we've been friends for 10 years. I can't really put into words how thankful I am to have him, not just as our CR, but as my best friend.
-## Journal Record
+
