@@ -5,12 +5,10 @@ Date:11.11.2025
 Palce:Amrita campus Coimbatore 
 
 
-My gratefullness to Amma (Mata Amritanandamayi Devi)
-             I am thankful for the way You teach us the value of selfless service, humility, and love for all beings. Through Your example, I’ve learned that true strength comes from compassion, and true success lies in serving others.
+My gratitude journel 
 
- Amma, Your words remind me to stay calm even in challenges, to forgive, and to see divinity in everyone I meet. Every hug, every smile, and every silence of Yours holds a 
-message of peace and healing. you created such a fantasticand greeny environment for us to study
-
+Amma (Mata Amritanandamayi Devi)
+             I am thankful for the way You teach us the value of selfless service, humility, and love for all beings. Through Your example, I’ve learned that true strength comes from compassion, and true success lies in serving others.Amma, Your words remind me to stay calm even in challenges, to forgive, and to see divinity in everyone I meet. Every hug, every smile, and every silence of Yours holds a message of peace and healing. Today, I feel deeply grateful to Amrita Amma (Mata Amritanandamayi Devi) for creating such a wonderful, green, and peaceful environment around us. Amma’s vision of love and care for nature has made our surroundings so beautiful and refreshing — filled with positivity, trees, and harmony. The greenery she promotes reminds us of the importance of living close to nature and protecting it with love.Amma has also inspired us to take care of our mental health. Through meditation, yoga, and mindfulness practices, she encourages everyone to find inner peace and balance. Her teachings help us to calm our minds, understand our stress levels, and handle life’s challenges with strength and clarity.Because of Amma’s guidance, our campus is not just a place of learning — it is a space of peace, compassion, and emotional healing. I feel blessed to be part of her vision, where spiritual growth and mental well-being are valued as much as education.Thank you, Amma, for showing us the path of love, peace, and inner strength. Your presence fills our lives with light and serenity. 
 To  kind girl
  I met a kind girl in the washing area who truly made my day a little brighter. I had been standing there for quite some time, feeling hesitant and struggling to ask anyone for help. I needed a washing stone, but everyone seemed busy, and I didn’t know how to approach them.
 
@@ -44,4 +42,5 @@ Because of them, I’ve not only learned lessons from books but also lessons abo
 
 
 ## Journal Record
+
 
