@@ -17,4 +17,5 @@ Scenario 2 (last week)
 Whenever I am depressed and want to cry aloud i talk to my friend Amirtha from other department.She is always available for me and never judge me.I sometimes wish it would be nice if she was also my department.
 
 Scenario 3 (last month)
-I saw one of my senior accidently in campus and we talked a lot abiut academics. He gave many guidance and helped me lot.Even though he us from other department he is always helping and supportive.
+I saw one of my senior accidently in campus and we talked a lot about academics. He gave many guidance and helped me lot.Even though he us from other department he is always helping and supportive.
+
