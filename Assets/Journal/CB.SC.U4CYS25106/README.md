@@ -6,6 +6,7 @@
 
 
 ## Journal 
+
 27 August 2025
 
 Today I was reminded how even small acts of kindness can change your whole day. My morning started very well : Amriteshwari ma’am allowed me to join the CSE students’ group for the Ganesh Chaturthi bhajans. It might seem like a little thing, but it honestly meant a lot to me. The group was only for CSE students, and I’m not one, so I never thought I’d be allowed to perform with them . But she still included me, and that made me feel at home. The bhajans brought such a peaceful vibe—they were a real break from all the usual college stress. I realized being included isn’t just about being in the group, but about feeling noticed and accepted for who you are. Her small gesture showed me that real leadership can be quiet, just about caring and thinking about others.
@@ -63,3 +64,6 @@ I’m someone who usually gets excited about festivals or big events. It’s eas
 Most of all, even though we were told not to write this, I’m really grateful to my parents for letting me study here. I’m also thankful to Appu for always helping me, even though I am a trouble. And above all, I’m grateful to God for always being there for me, for anything and everything, and keeping me safe.
 
 =}
+
+Sorry to those whom I might have forgotten to mention.
+Maybe words aren't enough to express my gratitude for you.
