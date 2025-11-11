@@ -17,7 +17,8 @@ Gratitude To:My roommate sandilya.
 Before 1 week of the midterm exams,my friend taught me the maths subject from basics.since I was weak in the subject.
 
 3)Date:25.10.2025
-scenario:After the midterm exams i was felling depressed by my marks.so my cousion who is in the same collage.helped me to recover.
+scenario:After the midterm exams i was felling low by my performence in mid-term exams.
 Gratitude To:My cousion Jithendra.
-so my cousion jithendra gave me motivation and spoke about my depression with my parents.Then my parents also motivated me counsoled me.
+so my cousion jithendra who is in the same collage gave me motivation and consoled me.he made me feel stronger and more confident to try again.I am thankfull for his kindness and belief on me.
+
 
