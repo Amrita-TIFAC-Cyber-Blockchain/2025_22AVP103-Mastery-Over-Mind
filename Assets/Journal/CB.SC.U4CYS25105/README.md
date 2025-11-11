@@ -18,5 +18,6 @@ every one here makes fun of us Amirthas yes my frd name is also amirtha we studi
 Scenario 3 (last week)
 <br>
 And one more person in my life to be gratitude is Amirtha’s Roommate lakshana. She is very calm and quite girl but have become more closer to me these days. I feel my vibe with her sometime but not all the time. We used to study till 1.30 am all nights in study room full of chats laughs musics and yes some studying also. Me amirtha and lakshana trio was a all of a sudden gang which is now my family here we care for eachother support each other always we all are available for one another I feel my bestie vibes with her. We all share snacks and buy all the food in canteen more than what we can eat and they give me to eat, basically I am a foodie I never say no to food but even though I cant eat that much food. On her birthday the cake we cut, was playfully applied on our faces but comparing her face all the cake was on my face I actually enjoyed a lot there. I feel homely around my CSE department friends. She motivates me and amirtha a lot that even when feel sleepy with her words we start studying and ironically she goes to sleep. I want her to be my friend till the end the college and even after our graduation.
-Scenario 3 (last week)
+
 <br>
+
