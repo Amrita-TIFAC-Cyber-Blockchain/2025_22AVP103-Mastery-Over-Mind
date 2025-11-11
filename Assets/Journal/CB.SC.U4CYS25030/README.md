@@ -13,15 +13,18 @@ Topic:writing about three people to whom I am grateful for meeting them in my in
 
              The three people I am gratefultfor meeting them in the college are madhu(my friend), abhijeet (my senior) and dama srinivas (my teacher).
 
-1.my friend-madhu 
-                 I am grateful to meet madhu during my intermediate education. he was the one person who always keep on helping me in my problems and struggles that I faced in my intermediate time that are related to my education or my life also. He helped me in learning all the basics of every topic of every subject that are helped me in the competitive exams that I faced, he was always been a source of positivity and support.
+scenario 1. my friend-madhu 
+                 I am grateful to meet madhu during my intermediate education. he was the one person who always keep on helping me in my problems and struggles that I faced in my intermediate time that are related to my education or my life also. He helped me in learning all the basics of every topic of every subject that are helped me in the competitive exams that I faced, he was always been a source of positivity and support.He has been my roommate and one of my closest companions in college. His friendly and joyful nature makes every day more cheerful and positive. Whenever I felt stressed or demotivated, he was always there to lift my spirits. His constant encouragement and positive attitude helped me regain confidence and stay focused on my goals. I have learned from him the importance of staying happy and spreading positivity even in difficult situations. I will always remember his inspiring words that keep motivating me to move forward in life.
 
-2.my senior-abhijeet              
-                abhijeet is my senior in my intermediate level. who made me get aware of the situations that I can face in my educational level I mean in the exams that I want to face in the 2nd year of intermediate. I admire his patience and willingness to help others without expecting anything in return. His guidance has inspired me to help others in the same way.
 
-3.my professor-dama sir
-                 I am really thankful to dama srinivas sir, my physics lecture, form motivating me in improving my learning skills and believe in myself. His classes are not just about the academics but also about the life lessons. he always reminds me to think positively and express gratitude to everyone in my life.
+scenario 2. my senior-abhijeet              
+                abhijeet is my senior in my intermediate level. who made me get aware of the situations that I can face in my educational level I mean in the exams that I want to face in the 2nd year of intermediate. I admire his patience and willingness to help others without expecting anything in return. His guidance has inspired me to help others in the same way. Having a familiar face from school has made my college life more comfortable and enjoyable. abhijeet anna is a very supportive and knowledgeable person who is always ready to help me whenever I face difficulties. He often teaches me new things and shares useful information that helps me improve both academically and personally. I truly appreciate his friendship, sincerity, and willingness to see others succeed. His presence reminds me of the value of long-lasting friendships built on trust and understanding.
+
+scenario 3. my professor-dama sir
+                 I am really thankful to dama srinivas sir, my physics lecture, form motivating me in improving my learning skills and believe in myself. His classes are not just about the academics but also about the life lessons. he always reminds me to think positively and express gratitude to everyone in my life.for his invaluable guidance and support throughout my college journey. He is not only an excellent teacher who made mathematics easier to understand but also a great mentor who encouraged us to develop our overall personality. His motivational talks often inspired me to dream big and work hard to achieve success in life. Apart from teaching academic subjects, he also emphasized the importance of communication skills, discipline, and self-confidence. His words of wisdom and practical lessons have had a lasting impact on my outlook toward education and personal growth.
+
 
               meeting this three people in my intermediate level is more meaningful and fulfilling. they have contributedmin improve and getting a great attitude from myself.
+
 
 
