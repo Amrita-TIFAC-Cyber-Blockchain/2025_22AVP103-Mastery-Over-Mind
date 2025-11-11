@@ -1,4 +1,4 @@
-I wish to show my gratitude towards my Amma and Roommates and Senior
+I wish to show my gratitude towards Amma and Roommates and Senior
 
 Scenario 1
 08/08/2025
@@ -11,3 +11,4 @@ I'm grateful to my friends Sathwika and Deepthi in Amrita University for their p
 Scenario 3
 08/08/2025
 I'm grateful to my senior in Amrita university because i entered the college with many doubts then during induction program i meet a senior who helped me to clear my doubts regarding fest conducted by our college and a way to academics and motivated  me .Senior at my university who patiently guided me through challenging coursework and cleared every doubt I had. I'm grateful to Senior willingness to invest time to my clear doubts .So i wish to show my gratitude towards senior .
+
