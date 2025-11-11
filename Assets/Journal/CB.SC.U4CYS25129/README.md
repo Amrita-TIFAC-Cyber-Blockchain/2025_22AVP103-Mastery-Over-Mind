@@ -21,7 +21,8 @@ After that, I posted in a few student groups saying my spectacles were lost. I h
 
 Then something unexpected happened. I found out that someone had actually posted a picture of my spectacles on the same day I lost them—11th October. I hadn’t noticed the post earlier because I wasn’t paying much attention. Rajaneesh from the CSE department had found them and kept them safe. Aparna, his classmate, helped me get in touch with him and collect my spectacles.
 
-Rajaneesh didn’t know me, but he still took the time to keep my things safe. Aparna didn’t have to help, but she did. And the security guard didn’t ignore me—he offered help when I needed it most. These actions may seem small to others, but to me, they were huge. They reminded me that kindness still exists in quiet, everyday moments.
+Rajaneesh didn’t know me, but he still took the time to keep my things safe. Aparna didn’t have to help, but she did. And the security guard didn’t ignore me—he offered help when I needed it most. These actions may seem small to others, but to me, they were huge. 
+
 
 I want to sincerely thank the security guard, Rajaneesh, and Aparna. You didn’t just help me find my spectacles—you gave me a memory I’ll always carry. A moment where strangers showed care, and friends stepped in to help. I’ll never forget it.
 
@@ -55,6 +56,7 @@ There are many times in class when I don’t understand something. Sometimes I f
 Even when I’m silent, they understand. Even when I’m not smiling, they notice. They ask me if I’m okay. They don’t force me to talk, but they stay with me. That kind of care is something I’ll never forget. It’s not loud or dramatic—it’s quiet, but powerful.Sometimes, I just sit with them and listen. I don’t talk much, but I feel calm. Their presence is enough. It’s like they carry a kind of peace with them, and I get to share it. That’s why I say they are my strength. When I feel weak, they make me feel strong. When I feel like giving up, they remind me why I started.I’ve had many moments where I felt like I couldn’t do something. Maybe I was stuck in a subject, or just mentally tired. But these friends didn’t let me stay stuck. They pulled me out of that space with their kindness. They didn’t give me big speeches. They just stayed with me, helped me, and made me laugh. And that was enough.
 
 I feel really blessed to have them in my life. I don’t know how to say it in big words, but I want them to know—what they do matters. Every small help, every smile, every time they sit with me—it matters. It stays in my heart.Thank you, Nethra, Dithy, Tanvi, Sathwika, Deva Dharshni, and Kaviya. You are not just friends—you are my comfort, my courage, and my joy. I will never forget your kindness and support. You make this place feel like home. You make me feel like I’m not alone in this journey. And for that, I’m truly grateful.
+
 
 
 
