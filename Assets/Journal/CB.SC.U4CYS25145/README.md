@@ -8,7 +8,7 @@
 ## Journal Record
 
 SCENARIO-1
-DATE:10.08.2024
+DATE:10.08.2025
 
 I am sincerely thankful to my senior, Prajith, who played a big role in helping me during my initial days in college. When I first joined Amrita University, everything felt new and a bit overwhelming — the campus, the classes, and the pace of college life. At that time, Prajith was the one who guided me and made those early days much easier.
 
@@ -49,6 +49,7 @@ Even today, whenever I pass by his cycle shop, I remember his goodness and smile
 
 
  
+
 
 
 
