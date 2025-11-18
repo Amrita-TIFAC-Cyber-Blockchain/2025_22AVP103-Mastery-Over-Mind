@@ -21,7 +21,7 @@ He spoke to me calmly and politely, not judging me or making me feel small. He s
 
 I’m grateful for how understanding he was at a moment when I was already stressed. He turned a potentially negative situation into a learning experience. His kindness and practical advice made me reflect on how I should approach my studies with more sincerity and responsibility.
 
-Today reminded me that a good advisor doesn’t just correct mistakes—they help you grow from them. And for that, I’m thankful.
+that day reminded me that a good advisor doesn’t just correct mistakes—they help you grow from them. And for that, I’m thankful.
 
 SCENARIO-2
 
@@ -34,7 +34,7 @@ His willingness to guide us instead of shutting us down made a huge difference. 
 
 His support allowed our team to participate in SIH, and that means a lot to us. I’m grateful not only for the chance but also for the understanding and encouragement behind it.
 
-Today reminded me that sometimes educators believe in us even when we make mistakes—and that is something worth appreciating deeply.
+that day reminded me that sometimes educators believe in us even when we make mistakes—and that is something worth appreciating deeply.
 
 SCENARIO-2
 
@@ -48,7 +48,8 @@ But suddenly, Harish anna appeared out of nowhere and helped me without hesitati
 
 I still remember how reassuring his presence was. In a moment when I felt embarrassed, scared, and lost in a new place, his kindness made me feel safe. It was because of him that I got proper treatment quickly, and I could continue the day without further trouble.
 
-Today, when I look back, I realize how small acts of kindness can make a huge difference in someone’s life. I’m truly grateful for what he did for me that day. It made my first day at Amrita memorable in the best way possible.
+That day when I look back, I realize how small acts of kindness can make a huge difference in someone’s life. I’m truly grateful for what he did for me that day. It made my first day at Amrita memorable in the best way possible.
+
 
 
 
