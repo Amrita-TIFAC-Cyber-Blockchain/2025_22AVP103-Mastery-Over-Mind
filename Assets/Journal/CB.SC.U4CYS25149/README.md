@@ -85,3 +85,4 @@ Gratitude is the best word to describe how I feel about my friends. They have ma
 
 In conclusion, my friends are truly a blessing in my life. They have always supported me, defended me, and made me smile even in the hardest of times. Their friendship has taught me the true meaning of loyalty, kindness, and understanding. I know that without them, my life would not be the same. They have been my constant source of joy, strength, and inspiration. I am forever grateful to have such amazing people by my side—friends who are not just part of my life, but part of who I am.
 
+
