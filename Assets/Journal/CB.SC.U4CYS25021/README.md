@@ -6,8 +6,8 @@
 
 
 ## Journal Record
-Date:18/11/2025
-subject:Three people iam very grateful for
+Date:18/11/2025,
+subject:Three people iam very grateful for,
 1.srinivasan sir,iam very grateful to sir beacuse he literally made me feel the toughest subject easier with his extraordinary teaching skills and 
 i literally love the way he approach with students and understand us well.mainly he explain with general and real life examples which every one could
 understand regardless of which language they are comfortable with .he literally knows how each and every student's mind would be when it comes to maths.
@@ -25,3 +25,4 @@ i really miss u .
 confident,well knowledged and skilled student.he is very experienced faculty i have ever seen .he will  make sure every student get every single point and
 explains multiple times very patiently,kindly and very importantly in detail.he really motivates every student and make confident by giving many career
 guidelines.yeah iam grateful to him and lucky to be his student.
+
