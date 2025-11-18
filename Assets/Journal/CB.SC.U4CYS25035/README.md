@@ -8,15 +8,16 @@ i would also like to thank my freinds who has been constant source of support an
 
 scenario 2
 date;8-8-2025
-second my collage founder sri mata amritanandamaya
+second my proffesor Ankusha mam
 
-As a student of Amrita, I feel truly blessed to be part of an institution that was founded and guided by the divine vision of Mata Amritanandamayi Devi, amma has created a space where education is valuable,She reminds us that knowledge without compassion is incomplete, and that true education should help us serve society with humility and kindness At Amrita, we are encouraged to do compassion and selflessness into our learning, reminding us that true education is incomplete without values and social responsibility i feel truly thankful to Amma for creating this beautiful college and providing us with an environment filled with knowledge
+i want to sincerely thank you for your kindness and support. becouse im not well good in communication skills  and sometimes I struggle to express myself well. When you noticed this, you kindly offered to help me improve, and that means a lot to me.Your encouragement and willingness to guide me give me hope that I can become better at speaking and writing in English. I am grateful for your patience and for believing in me even when I doubted myself.Thank you for being such a caring and understanding teacher. I look forward to learning more from you and growing with your help.
 
 scenario 3
 date;13-8-2025
 third my professor sreejith sir
 
 i would like to express my gratitude to sreejith sir who is not only a great teacher but also our class adviser whenever we have doubts he patiently give us clarity and makes sure that everyone understand if we wont understand anything he will clear the doubt properly and perfectly he always guides us in the right direction and helps us stay organized in both academics and collage activites his way of teaching inspires us to learn with intrest and confidence i feel very thankful to have a professor like him who motivates us to do our best everyday 
+
 
 
 
