@@ -18,7 +18,7 @@ When I reach there the faculty over there had me to come at 2:30 after the mess.
 
 **Scenario 2:**
 
-I want to express my gratitude to my friend Sahith. He has helped me countless times by lending me money whenever I need it. No matter the situation, he never hesitates. He would always say, “We are going to stay here together for four years — you can repay me anytime.” That simple line shows me how generous and understanding he is.
+I want to express my gratitude to my friend Sahith. He has helped me countless times by lending me money whenever I need it. No matter the situation, he never hesitates. He would always say, “We are going to stay here together for four years — you can repay me anytime.” That simple line shows me how generous and understanding he is. in the time of dhesara
 
 
 
@@ -30,7 +30,7 @@ He never made me feel bad for asking for help. He trusts me a lot in any situati
 
 
 
-gHe is just a genuine and ood person who looks out for his friends. His support has been a huge part of my college life. He always shares what he has without a second thought, and i also share everything with him, every point. I always felt comfortable coming into his room. Getting a friend like him is one of the best things that has happened to me and in my life. He does not only talk like a good friend; he proves it. I really appreciate how he always stays positive with everyone and in any situation, even during stressful exams.I have learned a lot from him about being a calm and focused person. He’s the kind of person you can trust, no matter what. My college experience would not be the same without him.
+He is just a genuine and ood person who looks out for his friends. His support has been a huge part of my college life. He always shares what he has without a second thought, and i also share everything with him, every point. I always felt comfortable coming into his room. Getting a friend like him is one of the best things that has happened to me and in my life. He does not only talk like a good friend; he proves it. I really appreciate how he always stays positive with everyone and in any situation, even during stressful exams.I have learned a lot from him about being a calm and focused person. He’s the kind of person you can trust, no matter what. My college experience would not be the same without him.
 
 
 
@@ -59,6 +59,7 @@ He never makes me feel like I am bothering him or disturbing him at any time, no
 
 
 I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without any greed. Having a roommate like him has made my hostel life so much happier, and I'm just really thankful to have him as a friend.
+
 
 
 
