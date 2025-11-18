@@ -19,3 +19,4 @@ Third, the class advisors, although i have not personally went and spoke to them
 Last but not the least, the lab assistants. One of the labs for us is really confusing even though we have the theory knowledge of it since all the connections and practical stuff gets confusing a lot sometimes but the lab assistants spend their time explaining us how each thing works and how it all connects and how the theory knowledge is the main base for it and due to their crucial help during times like these, we know we are safe for lab evaluation and won't get a zero or just end up standing there like a fool. They also sometimes struggle but they make sure at the end we get the correct connections and stuff and they are super helpful althought the only concern is there might be only 1 or 2 lab assistants sometimes so a person or 2 more could be helpful. Otherwise they are cool. 
 
 
+
