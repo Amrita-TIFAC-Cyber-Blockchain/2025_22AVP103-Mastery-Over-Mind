@@ -20,3 +20,8 @@ Scenario 3 : "The Housekeepers"
 Date : Everyday in Kashyapa Bhavanam
 To : The housekeeping staffs in the hostel and mess
 I cannot express how thankful I am to them. I mentioned that my roommates annoy me 90% of the time it is because they are keeping their stuff all over the room and not keeping it neat. Since childhood I was always told to keep my surroundings neat and clean due to witch i got a little bit of OCD (or something like that). Because of my roommates I will loose my mind and step out in the corridor and boom, a wave of serenity hits me because of how neat they maintain the place. Thank you guys!
+
+Scenario 4 : "That random 'Do you have water pa?' at Railway station"
+Date : 31st October 2025
+To : A complete stranger who works for the railway
+My parents moved from Pollachi to Nilambur the day before. So I went to the house warming function along with my uncle. My uncle was from Coimbatore. So, on the way back I didn't have any train form Shoranur to Ettimadai for the next 3 hours but my uncle had(the train he took will not stop at Ettimadai). So, I waited at the railway station for 2 and a half hours, went out to get lunch. It was a typical railway station lunch- Ghee rice (called biriyani) along with some pickle. I was sitting in a bench eating my lunch when a random railway worker asked me whether I had water with me. Though this happened in 5 seconds of the same day I had to wait for hours and travel for even longer it literally made my day. This is when I realised that even the smallest of actions can bring happiness to someone (the thing I only read in moral stories)
