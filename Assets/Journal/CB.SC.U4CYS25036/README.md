@@ -5,7 +5,7 @@
 # 22AVP103 - Mastery Over Mind
  
 
-SCENARIO 1 :
+SCENARIO 1 
 My friend: Aneesh 
 Time when I met him: 21-8-2025
 I met Aneesh in my room when I first came to Amrita Vishwa Vidyapeetham Coimbatore. At that time, everything was new and a
