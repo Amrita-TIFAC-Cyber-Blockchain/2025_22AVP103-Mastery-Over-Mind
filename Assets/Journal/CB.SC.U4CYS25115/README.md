@@ -18,7 +18,7 @@ When I reach there the faculty over there had me to come at 2:30 after the mess.
 
 **Scenario 2:**
 
-I want to express my gratitude to my friend Sahith. He has helped me countless times by lending me money whenever I need it. No matter the situation, he never hesitates. He would always say, “We are going to stay here together for four years — you can repay me anytime.” That simple line shows me how generous and understanding he is. in the time of dhesara
+I want to express my gratitude to my friend Sahith. He has helped me countless times by lending me money whenever I need it. No matter the situation, he never hesitates. He would always say, “We are going to stay here together for four years — you can repay me anytime.” That simple line shows me how generous and understanding he is. At the time of Dhasara we have get two days extra holiday . i was booking my train tickets again but at that time i don't have money i was calling to my father  he was not answering my phone call , i was in tension there were only 3 available seats for a particular train i don't have any money with me . at that time this guy came to me and aske that why are you in tension then i said to him about my problem , he said that is not any problem i will send you the money you book your ticket and later on you pay me back . that time i understand his character . 
 
 
 
@@ -59,6 +59,7 @@ He never makes me feel like I am bothering him or disturbing him at any time, no
 
 
 I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without any greed. Having a roommate like him has made my hostel life so much happier, and I'm just really thankful to have him as a friend.
+
 
 
 
