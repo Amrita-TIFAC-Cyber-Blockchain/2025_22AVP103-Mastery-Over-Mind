@@ -8,7 +8,7 @@ Scenario 1 – Self Gratitude
 Date: Aug-20
 Whom: Self
 
-I want to thank myself for the growth I’ve made since starting college. I began my journey feeling nervous and unsure, but over time I’ve become stronger and more confident. I’m proud of how I handled new challenges and learned to trust myself a little more each day.I’m grateful that I didn’t give up during tough moments and that I chose to learn from my mistakes instead of letting them hold me back. Every time I pushed through fear or doubt, I became a better version of myself.Through this journey, I’ve built resilience, learned to be kinder to myself, and developed habits that helped me stay focused and balanced. These small improvements have shaped a more mature version of who I am today.Today, I appreciate the person I’m becoming and thank myself for staying patient, hopeful, and determined. I know I’m not perfect, but I’m proud of my journey and the effort behind every step.
+During my first few weeks in college, I felt nervous and unsure how to navigate classes, meet new people, and adjust to the campus environment. Everything felt overwhelming—the large classrooms, unfamiliar faces, and the pressure of keeping up with assignments. That’s when my senior, Revanth, noticed my hesitation and approached me with a warm smile, offering to help. She patiently introduced me to classmates, explained how different departments and labs functioned, and even shared tips on managing assignments, projects, and deadlines effectively. Beyond academics, he gave me advice on how to balance studies with extracurricular activities and how to make the most of college life. his friendly and approachable nature made it easy for me to ask questions without hesitation, no matter how small or silly they seemed. he didn’t just guide me academically but also motivated me to believe in myself, step out of my comfort zone, and try new experiences. Because of her support, I began to feel more confident, welcomed, and prepared to face the challenges of college life..
 
 Scenario 2 – Gratitude to Project Team
 
@@ -24,5 +24,6 @@ Whom: Nature / Campus Environment
 
 I’m thankful for the peaceful nature around my campus. The fresh air, sunlight, and greenery always calm my mind and make even the busiest days feel lighter. Nature has been a steady source of comfort throughout college.My favorite quiet spots help me think clearly and relax during stressful times. Sitting under the trees or walking through the garden gives me a sense of clarity and reminds me to slow down and breathe.Walking around campus, watching sunsets, and feeling the cool breeze gives me balance and peace. These simple moments refresh my mind and help me stay focused.Nature has been a silent companion—giving me strength, calmness, and perspective. It has taught me to appreciate small moments and be mindful of the beauty around me.
 ## Journal Record
+
 
 
