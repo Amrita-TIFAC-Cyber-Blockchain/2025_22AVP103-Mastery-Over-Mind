@@ -64,7 +64,8 @@ He never makes me feel like I am bothering him or disturbing him at any time, no
 
 I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without any greed. Having a roommate like him has made my hostel life so much happier, and I'm just really thankful to have him as a friend.
 
-""I can't say in words how important they are in my life.""
+
+
 
 
 
