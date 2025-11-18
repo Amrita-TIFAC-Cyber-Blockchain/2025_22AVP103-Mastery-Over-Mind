@@ -8,13 +8,9 @@
 ## Journal Record
 **Scenario 1:**-
 
-I want to express my gratitude to my friend Srihas, who sits beside me in class. From the very beginning of my journey in Amrita, whenever I have faced any difficulty in understanding something, he would patiently explain to me in a very simple manner, without any hesitation.
+I am thank full to my senior anna , Because on the orientation day I didn’t  get any email from amrita about the orientation and I had call to the administration they told me the date of the orientation so I came here on the 8 of august then I do not have any idea what to do then at people who are there at gate they helped me to get the admit card when I entered the college it is time for the orientation till that time I did not know that I should upload all the document should be uploaded in the  Swagatham  portal on that same day my father had a return train due to urgent work he had to return back I did not have my document verification on that day my dad was thinking that what should we do now ,he was in tension then my approach some senior and asked him would he could help us in any think . then he asked what happened explain me he asked then my dad to tell him everything what happened and my dad told everything. the senior anna said that sir you for the 6:30 train I will take care of him. My dad left that night. Next day senior anna called me said that at sharp 9:30 you came to the orientation place at the pandal 
+When I reach there the faculty over there had me to come at 2:30 after the mess. At 2:30 I was having my campus tour then I these staff I have told to my senior then he said no problem I will take you the campus tour, it is time for the orientation he had taken all my document and uploaded it into the swagatham portal. When it was time for my document verification there was some problem that my photo was not properly uploaded the he taken me out side and retake my photo. my verification was completed. I am very thanking full to the my senior anna who had help me at that time 
 
-I still remember one day in math class, when I could not understand a particular problem. I  asked him multiple times, and without any anger or frustration, he explained it to me again and again. What I admire most in him is his patience and willingness to help others.
-
-He never makes me feel silly for not understanding something. His help has made me feel more confident in the class. I am really lucky to have him as my friend. He is a very kind person who truly cares about  people. His support has made my whole journey in Amrita much better.
-
-He is smart, but he is also humble and approachable. He always makes sure I have understood before moving on. It is great to have someone who sits beside me who is trustworthy and we can depend on him. His positive attitude makes even difficult classes easier. I have learned just as much from his kindness as I have from his explanations.
 
 
 
@@ -63,6 +59,7 @@ He never makes me feel like I am bothering him or disturbing him at any time, no
 
 
 I truly appreciate his kindness and his selfless nature. He’s always ready to help anyone without any greed. Having a roommate like him has made my hostel life so much happier, and I'm just really thankful to have him as a friend.
+
 
 
 
