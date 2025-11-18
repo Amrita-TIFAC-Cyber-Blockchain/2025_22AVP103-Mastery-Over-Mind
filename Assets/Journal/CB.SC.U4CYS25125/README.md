@@ -16,8 +16,7 @@ I am truly grateful for her friendship. She showed me that real friends are thos
 
 2.  My classmate 
     He has been one of the most supportive classmates i've had in my college.
-Once, during lab session, I was struggling to make my program work.so I asked him if he can have a look at program and correct the errors.So he stayed back,patiently helped me to make it work by trying different methods.when we couldn't finish it on time ,he took my laptop with him and worked on it and returned it to me fully working .
-He also played a major role during our hackathon- he was the one who handled most of the technical work while building our prototype.
+Once, during lab session, I was struggling to make my program work.so I asked him if he can have a look at program and correct the errors.So he stayed back,patiently helped me to make it work by trying different methods.when we couldn't finish it on time ,he took my laptop with him and worked on it and returned it to me fully working 
 I'm truly thankful to him for his support and teamwork.
 .
 College is often described as a transformative journey—a time when we not only gain academic knowledge but also  relationships that shape our character and future. Among the many people I’ve met during this journey, one stands out as a of support, kindness, and collaboration: my classmate and hackathon teammate. 
@@ -28,3 +27,4 @@ College is often described as a transformative journey—a time when we not only
 
 3. An old uncle    
 One day, my friend and I went to a nearby store to buy some items. When i reached the counter, i realized that the store only accepted cash payments. Unfortunately, i didn’t have any cash with me—only online payment options like PhonePe. I was unsure what to do, but then an elderly uncle who was also at the store noticed my situation. He kindly offered to help me by paying the bill in cash, and in return, we transferred the amount to him through PhonePe. since he didn’t know us personally. I’m truly thankful for his help that day. 
+
