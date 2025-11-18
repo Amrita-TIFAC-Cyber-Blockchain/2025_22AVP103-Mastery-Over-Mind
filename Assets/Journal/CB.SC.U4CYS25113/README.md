@@ -36,7 +36,7 @@ His support allowed our team to participate in SIH, and that means a lot to us. 
 
 that day reminded me that sometimes educators believe in us even when we make mistakes—and that is something worth appreciating deeply.
 
-SCENARIO-2
+SCENARIO-3
 
 DATE-7-08-2025
 
@@ -49,6 +49,7 @@ But suddenly, Harish anna appeared out of nowhere and helped me without hesitati
 I still remember how reassuring his presence was. In a moment when I felt embarrassed, scared, and lost in a new place, his kindness made me feel safe. It was because of him that I got proper treatment quickly, and I could continue the day without further trouble.
 
 That day when I look back, I realize how small acts of kindness can make a huge difference in someone’s life. I’m truly grateful for what he did for me that day. It made my first day at Amrita memorable in the best way possible.
+
 
 
 
