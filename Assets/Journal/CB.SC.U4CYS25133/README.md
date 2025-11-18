@@ -28,32 +28,27 @@ I would also like to thank my other friends who interact with me in a friendly m
 Even though Hindi was my second language I struggle to speak it fluently. I would like to thank my friends who despite my incorrect Hindi sentence framing didn't mind it and also helped me frame it better. With their assistance I gradually became more fluent in speaking Hindi.
 Whenever I needed some outside assistance in any of my problems my friends were always there to help me. 
 
+I wo
+
 Scenario 2:
 
 Date: 3 weeks back
 
 Gratitude towards my family
-I would like to express my deepest gratitude towards my mother. The Mid-Term exams were approaching and so was Diwali. Weeks before the exams, I and my friends had planned our Diwali break according to the academic calender. At that time for CYS students, there was a sudden change in the exams plans. We had already booked a ticket for 5 days. Instead of the dates we had originally seen in the academic calendar, the exams were rescheduled in such a way that shortened our break to only 3 days. Our five-day Diwali vacation was now reduced to only three days. The booking was done for not only me but also for 3 other friends. I became anxious. Not only because of the change in the break but also on returning home as I had an exam the day right after the next day of Diwali. I knew if I were to return home at that point I won't be able to study and so I and the others even thought of not going back home. It was a sudden notice to me and my friends and my mother. 
+I would like to express my deepest gratitude towards my mother. The Mid-Term exams were approaching and so was Diwali. Weeks before the exams, I and my friends had planned our Diwali break according to the academic calendar. At that time for CYS students, there was a sudden change in the exams plans. We had already booked a ticket for 5 days. Instead of the dates we had originally seen in the academic calendar, the exams were rescheduled in such a way that shortened our break to only 3 days. Our five-day Diwali vacation was now reduced to only three days. The booking was done for not only me but also for 3 other friends. I became anxious. Not only because of the change in the break but also on returning home as I had an exam the day right after the next day of Diwali. I knew if I were to return home at that point I won't be able to study and so I and the others even thought of not going back home. It was a sudden notice to me and my friends and my mother. 
 
 My mother convinced me to come to home for Diwali no matter what and that she will take care of it. She immediately started looking for alternatives. She contacted with my friend's parents and helped arrange a different plan. Despite being very busy with her work, she booked a last minute ticket for me and my friends through a different transport to return home for Diwali. She not only handled for this trip but also for every other trip such as Onam and the unexpected long holiday at September end. When I had fever she accepted my call at the middle of the night and kept talking to me to help me feel better. No matter the trouble I am in she always helps me from wherever she is in whichever way she can.
 
-I would also like to thank my father who despite his busy schedule makes some time everyday to talk to me and listen to me over the phone and help me with any problems or issues I have here. When I had some problems with my laptop, he made some time for me and helped me resolve the issue. When I had some difficulty in understanding a few things he patiently explained everything over the phone and taught me how to try and resolve these situations on my own here.
+I would also like to thank my father who despite his busy schedule makes some time everyday to talk to me and listen to me over the phone and help me with any problems or issues I have here.  When I had some problems with my laptop like installing ubuntu and kali linux, navigating a few things here and there, some concepts which I had to understand for installation and usage, he made some time for me and helped me resolve the issue. He made sure that I understood them thoroughly and taught me how to try and resolve the isues on my own. During the fever time he also accepted my call in the middle of the night, waking up from his sleep just to take care of me.
 
 Both my parents have been a constant source of support to me.
 
 Scenario 3:
 
-Date: Everyday scenario
+Date: 29th August 2025
 
-This is something that I notice every single day. 
+During my first train travel from Ettimadai to Coimbatore Junction I couldn't figure out which stop was Coimbatore Junction and as one would typically say : I was "lost". Seeing I was confused and tensed and always checking my phone's google maps for location which wouldn't update from time to time easily due to the quick location change every second, a student who was a green badge like me approached me and asked me if it was my first time. I replied yes. Then she introduced herself and her mother who was with her. She and her mother asked me where I was going and I replied Coimbatore Junction. They noticed that I was tense and not 
 
-The first one is about the cleaning and maintenance staff on campus. When I took a moment to reflect a few weeks back, I realised how much their efforts contribute to our comfort and well-being.
-
-Every morning, when I enter the classroom, the board is clean, the floors are clean, and the corridors are neat and well-maintained. From my experience, I know how difficult it is to clean and maintain one single room neat everyday. These staff members work tirelessly, many a times starting their day early and finishing late, ensuring that our surroundings remain clean and hygienic.
-
-Their dedication is something I deeply respect. Even on days when the weather is bad they clean and maintain the buildings. It's because of them that we get to enjoy a clean and fresh atmosphere inside the classrooms and buildings. 
-
-I would also like to extend my gratitude towards all the professors. They patiently explain all the doubts me and my friends have no matter how silly they are both in the lab and theory classes.
 
 
 
