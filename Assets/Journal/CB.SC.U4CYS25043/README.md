@@ -5,12 +5,14 @@
 # 22AVP103 - Mastery Over Mind
 
 ## Journal Record
-11/11/25
+18/11/25
 Place:Amrita Vishwa Vidyapeetham 
 
+
 Person 1: Ajay
-I am grateful to have Ajay as my senior. His guidance has been a major factor in my adjustment to Amrita. When I was new, he was the one who guided me through how things work here on campus. This assistance was very important. He also helped me with my academics, which I found challenging. He specifically taught me how to manage both academics and extracurricular activities. This is a difficult balance, and he provided a clear method.
-I can recall a specific instance of his help. One day, I was in the library. I was in the process of preparing for a Modern Physics test. This test was scheduled for the next day. I was feeling very frustrated while preparing for this test. The concepts were complex, and I was not understanding them. Ajay noticed my frustration. He approached me and took the time to make me understand the concepts. He explained them in a different way that was much clearer. As a direct result of his guidance, I performed well in that test. My positive outcome was attributable to his intervention.
+I am grateful to have Ajay as my senior. His guidance has been a major factor in my adjustment to Amrita. When I was new to the campus and unsure of how things worked, he personally took the time to show me around, explain the academic system, and guide me on whom to approach for different matters. That first-day support made my transition much easier. He also helped me with my academics, which I initially found challenging. He taught me how to balance both academics and extracurricular activities, even sitting with me once to help me create a proper schedule when I felt overwhelmed.
+
+I can recall several specific incidents where his help made a huge difference. One of the most memorable was a day in the library when I was preparing for my Modern Physics test. I was frustrated, stressed, and unable to understand the concepts. Ajay noticed this, approached me, and patiently explained everything in a clearer way. Because of his guidance, I performed well in that test. I am also grateful for the time he supported me during a particularly stressful week when I had multiple assignments due. He helped me prioritise my tasks, reviewed my work, and encouraged me when I felt like giving up. These moments of genuine guidance and support have deeply impacted me, and I remain thankful for his presence in my journey
 
 
 Person 2: Rohini Ma'am
@@ -19,5 +21,6 @@ Rohini Ma'am guided me and my entire team through the complete process of SIH. S
 
 
 Person 3: Neranjan
-The third person is Neranjan. Neranjan is a worker in the Samudra canteen. My gratitude for him stems from an incident that occurred one week ago. I was sitting in the canteen at a table. I was enjoying my orange juice. At that time, another person passed by my table and accidentally spilled juice. This juice went all over my shirt, my pant, as well as my bag. My personal items and clothes were covered.
-This was an unpleasant and public event. Neranjan observed the situation. He immediately came over to help me. He offered me tissues and a bottle of sanitizer so I could address the stains on me and my clothes. He also proceeded to clean the spill on the table and floor. His response was fast and very helpful. I am grateful that I met him that day. He provided practical assistance in a moment of need.
+The third person is Neranjan. Neranjan is a worker in the Samudra canteen. My gratitude for him stems from an incident that occurred one week ago. I was sitting in the canteen at a table, enjoying my orange juice. At that time, another person passed by my table and accidentally spilled juice. This juice went all over my shirt, my pant, as well as my bag. My personal items and clothes were covered. This was an unpleasant and very public event.
+
+Neranjan observed the situation and immediately came over to help me. I am grateful for how quickly he responded and for the genuine concern he showed. He offered me tissues and a bottle of sanitizer so I could clean the stains on my clothes and belongings. I am also thankful that he took it upon himself to clean the spill on the table and floor right away, helping me avoid further embarrassment. His kindness, practical assistance, and calming presence made a difficult moment much easier to handle. I am truly grateful that I met him that day, as his thoughtful actions supported me when I needed help the most.
