@@ -7,12 +7,7 @@
 
 ## Journal Record
 Gratitude Journal :
-    1. I am grateful to my cousin because he helps me in my academics.  
-    2. I am grateful to Srinivasan sir because of the way he teaches,as he teaches topics in a easy manner.
-    3. I am grateful to my senior because she helps and motivates me whenever i need. 
-
-
-It was during the first week of August when I joined college — everything around me felt new and slightly overwhelming. I remember standing in line during the department document verification, my heart beating faster than usual. The crowd, the formalities, the seniors moving confidently from one counter to another — it was all a blur to me. That’s when I first met Netra, my senior. She smiled kindly and asked me if I needed help. That simple question brought such a wave of relief.
+   It was during the first week of August when I joined college — everything around me felt new and slightly overwhelming. I remember standing in line during the department document verification, my heart beating faster than usual. The crowd, the formalities, the seniors moving confidently from one counter to another — it was all a blur to me. That’s when I first met Netra, my senior. She smiled kindly and asked me if I needed help. That simple question brought such a wave of relief.
 Netra helped me through the verification process patiently, explaining where to go and what to do next. She noticed that I looked a little lost, and instead of just pointing in a direction like many others might have done, she actually stayed beside me until everything was sorted. I remember thinking soft her voice sounded even in that noisy hall. From that day, I knew she was someone I could look up to.
 As the days passed, I began to see her often in the department corridor. She always greeted me with a warm smile and would ask how I was adjusting. In the beginning, college life was confusing — new subjects, new people, and the constant feeling that I wasn’t doing enough. Whenever I talked to Netra, she made everything seem easier. She never acted superior because she was a senior; instead, she was encouraging and approachable.
 There was one day in September, before our first internal assessment, when I was extremely anxious about my studies. I had been struggling to balance assignments, classes, and the sudden rush of expectations. Netra noticed it immediately and gently spoke about how she too had once felt exactly like me. She said it’s okay to not have everything figured out right away. I still remember her words — “What matters is you’re trying. 
@@ -38,6 +33,7 @@ Having a roommate like her has made me realize how important small acts of kindn
 When I look back at the last few months — from August to October — I can’t imagine college without her laughter and calmness. I’ve learned from Hema that friendship isn’t about constant excitement or grand gestures; it’s about being there, quietly, consistently, and with care.
 I’m truly thankful that I met her. She’s made hostel life not just bearable, but beautiful.
 There are other people who i am truly grateful for the things they have done for me  but these three people came to my mind immediately when i thought of writing a gratitude journal.
+
 
 
 
