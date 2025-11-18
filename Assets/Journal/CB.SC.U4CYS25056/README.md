@@ -8,7 +8,7 @@ Gratitude journal
 When I think about my journey in this college, I realize how these  people make my date to day life better . I truly feel blessed to have met them.
 
  SCENARIO 1 : 
- My friend: Sugnitha
+ My friend: Valli
  Time when I met her: 8-8-2025
  I met her on orientation day . After my orientation I got to know she is my roommate. Having her in my life feels like having a mirror, but a
  magical one — it shows not just who I am now but who I might become if I keep moving forward. She sees my strengths even on days when I can’t
@@ -18,8 +18,8 @@ When I think about my journey in this college, I realize how these  people make 
  no matter what. When I look back, I think of all those late-night phone calls where we talk about everything and nothing. Sometimes we end up 
  laughing so much we forget why we called in the first place. Other times, silence is enough. There’s this unspoken understanding between us —
  like, she just gets it. There’s no need to explain every little feeling, which is a rare gift. One thing I adore about her is her kindness. 
- She listens to me ramble without judging, gives advice that feels more like a warm hug than a lecture, and reminds me of my worth when I'm 
- doubting everything. Her empathy is next-level — she genuinely cares about others and finds ways to make everyone around her feel important. 
+ She listens to me ramble without judging   . Her empathy is next-level — she genuinely cares about others and finds ways to make everyone   
+ around her feel important. 
  Her sense of humour is something I can’t live without. Even on my moodiest days, she’ll send a silly meme, crack some crazy joke, or imitate
  something just to see me smile. There have been times when I thought nothing could cheer me up — and then she had me in fits of laughter so 
  loud we almost got scolded. Her laughter is pure sunshine. But what really stands out is how dependable she is. Life gets busy, but she never 
@@ -92,3 +92,4 @@ more united and supportive.
 
 
 I am very thankful to this people. these people are making my college journey much bettter..
+
