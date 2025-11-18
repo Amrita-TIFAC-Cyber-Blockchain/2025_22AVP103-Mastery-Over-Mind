@@ -23,3 +23,4 @@ What inspires the writer is that Praveen Sir performs all his duties with great 
 
 Praveen Sir handles chaos with composure and positivity, saying, “We’ll manage,” teaching the writer that attitude matters more than circumstances. His core philosophy is that kindness is a choice, reflected in his quote, “Being kind costs nothing, but it gives everything.” He reminds the writer to appreciate everyone’s contribution, especially those who work tirelessly behind the scenes. He is an embodiment of what a good institution should be: a community built on empathy and cooperation. He proves that one can make a profound difference through kindness, sincerity, and a willingness to help, regardless of their formal role or title.
 
+
