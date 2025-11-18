@@ -24,19 +24,17 @@ Even now, I look up to Prajith not only as a senior but as a friend and role mod
 SCENARIO-2
 DATE: 2MONTHS BEFORE
 
-My close friend Ashwanth has played a huge role in making my college life meaningful and manageable. College wouldn’t feel the same without him. Whether it’s sharing notes, helping me with assignments, or making me laugh after a long and stressful day, he has been a constant source of support. We’ve shared both pressure-filled study sessions and hilarious, silly jokes — and those everyday moments have made our bond truly special.
+I am truly grateful to my friend Darshan, who supported me during one of the most stressful times this semester — my mid-term exam preparation, especially for Cyber Security Essentials, one of the toughest subjects we had.
 
-But the main reason I chose to write this gratitude journal about him is because of one particular scenario that deeply touched me.
-There was a time early in the semester when I fell behind in a subject due to personal stress and couldn’t keep up with the lessons. I felt lost, embarrassed, and even scared about the upcoming internals. While everyone else was busy with their own studies, it was Ashwanth who immediately noticed something was wrong.
+During that week, I felt completely overwhelmed. No matter how many times I read the chapters, the concepts refused to make sense. I was worried, tense, and honestly scared of failing. While most students were busy with their own preparation, Darshan did something I will always remember — he sat with me, guided me, and made sure I understood everything clearly.
 
-Instead of ignoring it, he sat beside me in the hostel study area, gathered all the notes, and said, “Don’t worry, da. We’ll go through everything together.”
-That night, he spent hours explaining every concept patiently, turning the toughest topics into simple ideas I could understand. He didn’t rush, didn’t get irritated, and didn’t give up on me — even when I asked the same doubts repeatedly.
+On the night before the exam, he stayed with me until 2:00 AM, patiently explaining every single concept, one by one. He never once showed irritation or tiredness. Whether it was encryption types, network security layers, threat classifications, or basic protocols, he broke everything down into simple, understandable explanations.
 
-His effort helped me not only pass the test but regain my confidence. More than academic help, it was the care behind his actions that meant the most.
+What touched me the most was his willingness to sacrifice his own study time just to make sure I felt confident. He could have easily focused only on his preparation, but instead, he chose to help me when I truly needed it. That night was a turning point — not just academically, but emotionally. His support gave me confidence, clarity, and peace of mind.
 
-That scenario made me realize how rare it is to find a friend who stands by you not only during fun moments but also during your weakest ones.
+This gratitude journal is not just to thank him for helping me score better, but to appreciate the kindness and sincerity behind his efforts. True friends are those who stand by you when you feel lost — and in that moment, Darshan proved exactly that.
 
-I’m truly grateful for Ashwanth — for his kindness, patience, and for being the kind of friend who turns fear into confidence and stress into strength.
+I am genuinely grateful for his friendship, compassion, and patience. He didn’t just help me study; he helped me believe in myself again.r into confidence and stress into strength.
 
 SCENARIO-3
 DATE: 6.08.2025
@@ -51,6 +49,7 @@ Even today, whenever I pass by his cycle shop, I remember his goodness and smile
 
 
  
+
 
 
 
