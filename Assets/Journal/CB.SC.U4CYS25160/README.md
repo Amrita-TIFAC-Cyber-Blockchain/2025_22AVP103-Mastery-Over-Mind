@@ -6,7 +6,7 @@
 Scenario 1 – Self Gratitude
 
 Date: Aug-20
-Whom: Self
+Whom: Senior Anna
 
 During my first few weeks in college, I felt nervous and unsure how to navigate classes, meet new people, and adjust to the campus environment. Everything felt overwhelming—the large classrooms, unfamiliar faces, and the pressure of keeping up with assignments. That’s when my senior, Revanth, noticed my hesitation and approached me with a warm smile, offering to help. She patiently introduced me to classmates, explained how different departments and labs functioned, and even shared tips on managing assignments, projects, and deadlines effectively. Beyond academics, he gave me advice on how to balance studies with extracurricular activities and how to make the most of college life. his friendly and approachable nature made it easy for me to ask questions without hesitation, no matter how small or silly they seemed. he didn’t just guide me academically but also motivated me to believe in myself, step out of my comfort zone, and try new experiences. Because of her support, I began to feel more confident, welcomed, and prepared to face the challenges of college life..
 
@@ -24,6 +24,7 @@ Whom: Nature / Campus Environment
 
 I’m thankful for the peaceful nature around my campus. The fresh air, sunlight, and greenery always calm my mind and make even the busiest days feel lighter. Nature has been a steady source of comfort throughout college.My favorite quiet spots help me think clearly and relax during stressful times. Sitting under the trees or walking through the garden gives me a sense of clarity and reminds me to slow down and breathe.Walking around campus, watching sunsets, and feeling the cool breeze gives me balance and peace. These simple moments refresh my mind and help me stay focused.Nature has been a silent companion—giving me strength, calmness, and perspective. It has taught me to appreciate small moments and be mindful of the beauty around me.
 ## Journal Record
+
 
 
 
