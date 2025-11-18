@@ -5,6 +5,7 @@
 # 22AVP103 - Mastery Over Mind
 
 Scenario 1: When Mahiesh Helped Me Through the Chaos
+
 Date: September 14th, 2025
 
 September 14th was one of those days where everything came at me at once. Four assignments, a presentation, and a group project all piled up together. I was already low on sleep, skipping meals, and honestly just mentally drained. I went to the AB2 library around noon and just sat there staring at my laptop. I wasn’t studying. My mind felt blank.
@@ -21,6 +22,7 @@ What I realized that day is that friendship isn’t always about being funny or 
 
 Scenario 2
 Adhi’s Patient Teaching Changed Everything
+
 Date: September 10th–15th, 2025
 
 Between September 10th and 15th, I was really struggling with Linear Algebra. Not just “I need to study more” struggling — I genuinely didn’t understand the concepts. Row space, column space, null space… I would look at the textbook and nothing was making sense. I felt frustrated and honestly a bit stupid.
@@ -41,6 +43,7 @@ I am genuinely grateful to Adhi. He didn’t just help me pass; he helped me act
 
 Scenario 3 
 Mr. Sibi’s Guidance During SIH Confusion
+
 Date: September 14th, 2025
 
 On the same stressful week, our SIH (Smart India Hackathon) problem statement also became a mess. Our team Hustle Squad (me, Mahiesh, Vishaak, Shivani, Adhi, and Sanjai) had already chosen a problem and started collecting work. I thought we were prepared.
@@ -54,6 +57,7 @@ The way he spoke was calm. There was no judgment. He didn’t say we were wrong 
 We finally selected a cybersecurity-related problem that matched our skills. And honestly, that decision saved us from struggling later. If he didn’t step in at the right time, we would have been stuck.
 
 That day I understood what a mentor actually is — not someone who just teaches topics, but someone who makes sure you move in the right direction. I’m really grateful Sibi sir cared enough to guide us instead of just letting us crash..
+
 
 
 
