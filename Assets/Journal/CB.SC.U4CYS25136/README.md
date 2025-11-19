@@ -6,7 +6,8 @@
 
 
 ## Journal Record
- Scenario: 1
+  
+Scenario: 1
 Date: August 6  
 Whom: Karthik
 It was August on 6, the day I will  remember always . It was the first day of my college life. I felt everything new and exciting. As a first-year student entering in to the campus I wondered by seeing the green environment and the campus and the mountains around campus looks beautiful ,the nature here is very beautiful I was full of curiosity and  nervousness a bit. The campus was very  big. People here are filled with new faces and voices, completely different from school life which we came across. 
@@ -16,24 +17,17 @@ When I first saw Karthik, I had no idea about him and he later become my roommat
 I remember that  how lucky I was to meet someone like him on the first day of my college. It felt like a sign that my college life would be so great with the people I will be  meeting in here.
 
 Later that day, I found out Karthik would also be my roommate in the hostel. I was genuinely surprised and extremely happy. I felt relieved knowing I would be staying with someone who shared similar thoughts and attitudes. 
-The next day we had an orientation in our college for the first year people who came to the college we then went there and sat other in fact he helped in reaching to the place where it happened all the way from the hostel which we used to stay .There we say many people who came to join in this university and there saw many guest welcoming first years and addressing them about the college life and rules and regulations then they addressed about the academics by department wise and they gave clear roadmap and curriculum of our university about what we are going to study in this four years of college and then we had our lunch there and afternoon we got to visit for document verification and completed all the belongings of certificates which are supposed to submit for university management we had finished that and then we have there uniform distribution and then we took it there and we came to our hostel room.
+The next day we had an orientation in our college for the first year people who came to the college we then went there and sat other in fact he helped in reaching to the place where it happened all the way from the hostel which we used to stay .There we say many people who came to join in this university and there saw many guest welcoming first years and addressing them about the college life and rules and regulations then they addressed about the academics by department wise and they gave clear roadmap and curriculum of our university about what we are going to study in this four years of college and then we had our lunch there and afternoon we got to visit for document verification and completed all the belongings of certificates which are supposed to submit for university management we had finished that and then we have there uniform distribution and then we took it there and we came to our hostel room. 
+
+Over the next few days, we grew closer as we spent time in class and the hostel. We woke up early, got ready for lectures, and walked to class together. During breaks, we would sit under a tree on campus and talk about everything, from our favorite movies to our ambitions. Our conversations were full of laughter, ideas, and motivation.
 
 As I look ahead to the years to come, I know there will be challenges, changes, and new experiences. But one thing is certain that the friendship I have with Karthik will always remain a strong foundation in my college journey. The memories we have made will continue to remind me that sometimes, the people we meet by chance become the most important part of our story.
 
 It was the day I met my best friend, my roommate and someone who made my college life truly better.
 
-  
-
-Scenario:2
-Date: September 09
-Whom: Professor Srinivasan Sir
-
-On September 09, I had the wonderful opportunity to meet Professor Srinivasan sir , who teaches Maths in our college. I felt truly grateful for this experience because his teaching style and personality left a deep impression on me. He has a special way of making even the most difficult topics in to simple and interesting. Her classes are always interactive and filled with real-life examples that help every student understand the subject better. He always encourages students to ask questions, no matter how small or basic they may seem. This open and friendly approach creates a comfortable learning atmosphere where everyone feels free to express their doubts.Initially, I was nervous to approach him, thinking he might be busy. However, when I went to his cabin, he welcomed me with a warm smile and kindly asked me to sit down. I explained my confusion, and he listened patiently and  rather than giving me direct answers, he guided me step by step, helping me think through the problem and find the answer on my own. This approach made me realize the importance of understanding the concept deeply instead of memorizing formulas .He never made me feel that my doubts were silly or unimportant.Her advice helped me change my learning habits, and I soon began to enjoy the subject more.This interaction made me feel truly inspired. I learned that a good teacher not only explains lessons but also motivates students. 
-I feel thankful to have such a wonderful teacher who genuinely cares about his students understanding. Meeting him reminded me that learning becomes easy when guided by someone who teaches with passion and empathy. This experience made me appreciate the value of great teachers who help students grow both academically and personally.
-Meeting Professor Srinivasan was one of the most inspiring moments of my college life. His kind nature, clear explanations, and patient attitude made a good impression on him. I am truly grateful for his support and guidance, which has motivated me to study with greater interest and confidence. 
 
  
-Scenario: 3
+Scenario: 2
 Date: Aug 21 
 Whom: Praveen sir 
 
@@ -45,9 +39,23 @@ Beyond academics, he often reminds us about the importance of discipline, time m
 Overall, I have learned that Praveen Sir is not just a class advisor but also a role model who shows how a teacher’s guidance can shape a student’s mindset. His humility, patience, and dedication have had a strong impact on me. Whenever I face a problem, I remember his calm approach and try to handle things with the same level of composure. I feel truly grateful to have a mentor like him during this early stage of my college journey.
 
 
+Scenario:3
+Date: September 09
+Whom: Professor Srinivasan Sir
+
+On September 09, I had the wonderful opportunity to meet Professor Srinivasan sir , who teaches Maths in our college. I felt truly grateful for this experience because his teaching style and personality left a deep impression on me. He has a special way of making even the most difficult topics in to simple and interesting. His classes are always interactive and filled with real-life examples that help every student understand the subject better. He always encourages students to ask questions, no matter how small or basic they may seem. This open and friendly approach creates a comfortable learning atmosphere where everyone feels free to express their doubts. Initially, I was nervous to approach him, thinking he might be busy. However, when I went to his cabin, he welcomed me with a warm smile and kindly asked me to sit down. I explained my confusion, and he listened patiently and  rather than giving me direct answers, he guided me step by step, helping me think through the problem and find the answer on my own. This approach made me realize the importance of understanding the concept deeply instead of memorizing formulas .He never made me feel that my doubts were silly or unimportant .His advice helped me change my learning habits .This interaction made me feel truly inspired. I learned that a good teacher not only explains lessons but also motivates students. 
+I feel thankful to have such a wonderful teacher who genuinely cares about his students understanding. Meeting him reminded me that learning becomes easy when guided by someone who teaches with passion and empathy. This experience made me appreciate the value of great teachers who help students grow both academically and personally.
+Meeting Professor Srinivasan was one of the most inspiring moments of my college life. His kind nature, clear explanations, and patient attitude made a good impression on him. I am truly grateful for his support and guidance, which has motivated me to study with greater interest and confidence. 
+
+
+
+
+
+
 
 
 
 
 
  
+
