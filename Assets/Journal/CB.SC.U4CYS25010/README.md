@@ -9,7 +9,7 @@
 Three persons i am grateful towards in Amrita University:
 1.Ramaguru Sir(MaOM Faculty Member)
 2.Priya (My senior)
-3.Hemachandra (B.tech junior CSE core student)
+3.Charan (my classmate)
 1 -- On 28th of October 2025, Ramaguru sir came to our class and enquired our queries towards our PSAT faculty and her teaching.
 He conveyed our problems to madam and he invested most of his valuable time towards this problem and figured out some solutions in order to make us understand the subject and solve our query. He suggested some of the advices to madam from his previous teaching experience to make children understand the subject.
 2 -- On 17th October 2025, i was preparing for my physics mid term examination then i remembered that i am not having any calculator for the complex calculations in the examination. So i informed her about the situation then she came near my hostel gave me her calculator. With the help of her calculator i was able to calculate the complex calculations in exam. She helped me at that peak time and  i am very grateful to her as she also helped in many situations in my early period in this college.
@@ -65,34 +65,60 @@ She's not just senior anymore. Mentor? Friend? Both probably.
 Now whenever I'm stressed I literally asking myself "what Priya would do?" Usually the answer is something like - calm down, be nice, help however you can.
 
 She showed me that being generous doesn't cost anything but it's like... really powerful? I'm so grateful. Not just for calculator thing but for being such genuinely good human.
+3 -- Charan (My classmate)
+When I think about the people who have genuinely impacted my life here at Amrita, one name that stands out in a way I never expected is Charan, my classmate from CSE Cybersecurity. He isn’t a junior or a senior—just someone sharing the same year, the same classes, the same deadlines, and the same academic storms. Maybe that’s why his help meant so much. He didn’t step in because of hierarchy or obligation. He stepped in simply because he cared, and because he’s the kind of person who doesn’t hesitate when someone needs support.
 
-3 -- Hemachandra (CSE Core junior student in amrita university)
+It was October 14, 2025. The PSAT exam was approaching at full speed, and Flowgorithm was sitting right there in the syllabus like a monster waiting to devour my marks. I was trying to study in my room, but every diagram and symbol looked like an ancient language carved into stone tablets. No matter how many times I went through my notes, nothing made sense. That kind of frustration—the one where time is running out and your brain refuses to cooperate—had taken over completely.
 
-And then there's Hemachandra who's technically my JUNIOR but honestly saved my ass so I'm putting him here.
+I remember sitting there with my notebook open, laptop blinking in front of me, and this sinking realization that I was basically doomed for this part of the exam. I had even started preparing myself mentally to skip the Flowgorithm questions entirely and just hope the rest of the paper saved me.
 
-October 14, 2025. PSAT exam is coming. Flowgorithm on the syllabus. Me? Absolutely clueless. I was sitting in my room staring at my notes like they're written in ancient Greek or something. Getting more stressed every minute.
+And then, suddenly, my phone buzzed.
+It was Charan.
 
-Then Hemachandra messaged me out of nowhere. Like he just sensed I'm dying or something. I told him I'm struggling and he immediately offered to teach me. 
+There was nothing special about the message—just a casual,
+“Bro, studying for PSAT or still procrastinating?”
 
-Over next few hours he broke EVERYTHING down. Algorithms, flowcharts, the logic - all of it. He drew diagrams, gave examples, kept checking "you understanding this part?" before moving forward. Super patient. No judgment at all for the fact that I'm struggling with basic stuff.
+But the timing… it was perfect. Almost like he sensed I was fighting for my academic life. I replied honestly, telling him I was completely lost with Flowgorithm and had no idea what I was doing.
 
-Exam day? I answered those questions confidently. All thanks to him only.
+His response came instantly:
+“Da, don’t stress. I’ll teach you. It’s not hard.”
 
-What gets me about Hemachandra is how humble he is. He's younger than me and could've easily been like "figure it out yourself senior" but he just helped like it's nothing. Never acted like he's doing me some massive favor. And he kept helping since then also - notes, clarifications, pep talks when I'm overwhelmed.
+That message felt like the universe sending help at the last minute.
 
-He's obviously smart but what really standing out is how kind he is. To him learning is like team sport not competition.
+Over the next few hours, he sat with me—calm, patient, and incredibly clear. He didn’t rush through the concepts or show even a hint of annoyance when I got confused. Step by step, he broke everything down—algorithms, flowchart logic, decision paths, loops, symbols, every detail that had previously felt impossible. He explained things using examples, drew diagrams, and checked after every small topic,
+“Got this part? Or should I explain again?”
 
-This changed how I think about asking for help honestly. Doesn't matter if someone is senior or junior or whatever. Help can come from anywhere. There's no hierarchy when it comes to kindness. Hemachandra made Amrita feel like actual community where people looking out for each other instead of just competing.
+Not once did he make me feel slow or dumb. Not once did he act like he was doing something extraordinary. To him, helping was natural—almost effortless.
 
-I'm grateful for academic stuff obviously but also for what he taught me about staying humble and remembering that education is as much about connections as it is about grades.
+By the time we finished, I felt something I hadn’t felt in days—actual clarity. The fog in my mind had finally lifted.
 
-Maybe even more about connections actually.
-When I'm thinking about these three people I just feel really lucky.
+And on the exam day, when the Flowgorithm question appeared, something surprising happened—I didn’t panic. I recognized it instantly. I knew what steps to write. I answered confidently, and I walked out of the exam hall with this quiet sense of victory.
+Because deep down I knew:
+If Charan hadn’t taught me that day, I would have been done for.
 
-Ramaguru Sir, Priya, Hemachandra - they all showed me what empathy and generosity and humility actually looks like in real life. Not just as concepts but as actions. They shaped how I study but also who I'm becoming as person which sounds cheesy but it's true.
+But the thing that stays with me—even more than the academic help—is who Charan is as a person. There are people who help you but make you feel small in the process. Charan is the opposite. He never made me feel embarrassed for struggling with something he found easy. He never showed irritation or superiority. He treated me like an equal—someone worth his time and effort.
+
+Even after the PSAT, his support didn’t stop. Whenever I had doubts, he helped. Whenever I felt overwhelmed or stressed, he somehow noticed and checked in. Sometimes it was notes, sometimes explanations, sometimes just a simple
+“You’ll figure it out, don’t overthink.”
+But every time, it made a difference.
+
+What I truly admire about Charan is his combination of intelligence and humility. In CSE Cybersecurity—where competition is intense and everyone is trying to prove themselves—Charan stands out because he doesn’t compete against people. He raises them up. He believes learning should be shared, not hoarded. He believes the real win is when everyone understands, not when only he does.
+
+He taught me something far more important than Flowgorithm that day.
+He taught me that help can come from anyone—not just seniors, toppers, or the people we expect. Sometimes the person sitting right beside you in class becomes the one who pulls you out of your academic mess. He made me realize that there is no hierarchy in kindness. No rules about who is “allowed” to help whom.
+
+Because of him, Amrita feels more like a community to me—a place where people look out for each other instead of silently competing.
+
+When I look back at all three people I’m grateful for, Charan holds a special place because he didn’t just teach me a topic.
+He changed the way I look at learning, friendship, and humility.
+
+And honestly, I feel incredibly lucky that our paths crossed exactly when I needed someone like him the most.
+
+Ramaguru Sir, Priya, Charan- they all showed me what empathy and generosity and humility actually looks like in real life. Not just as concepts but as actions. They shaped how I study but also who I'm becoming as person which sounds cheesy but it's true.
 
 Gratitude is not just something you feel for second and forget. It's what connects you to good in people and reminds you why relationships actually matter.
 
 These three people are everything I'm loving about being at Amrita. I'll always treasure what they given me.
+
 
 
