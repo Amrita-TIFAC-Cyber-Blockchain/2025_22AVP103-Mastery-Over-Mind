@@ -20,10 +20,13 @@ I’m thankful to my project team for making our work meaningful and enjoyable. 
 Scenario 3 – Gratitude to Nature / Campus Environment
 
 Date: Agust-08
-Whom: Nature / Campus Environment
+Whom: my friend
+I want to thank you Yashwanth.because you have helped me during mid term exams.during CYBER SECURITY ESSENTIAL exam.you have been spent your valuable to explain before going to the exam hall even though  you are in tension about you are exam but explained me without any doubt.And you explained me that subject after all exams.again you teached that subject to clear my doubts without any hesstition in simple way to understand and you inspired me with some motivational words.
+I really wanted to thank you beacuse.we can see many members clear my doubts sometimes but you as a friend explain me everyday.Iam forever thank ful for that Iam always with you.
 
-I’m thankful for the peaceful nature around my campus. The fresh air, sunlight, and greenery always calm my mind and make even the busiest days feel lighter. Nature has been a steady source of comfort throughout college.My favorite quiet spots help me think clearly and relax during stressful times. Sitting under the trees or walking through the garden gives me a sense of clarity and reminds me to slow down and breathe.Walking around campus, watching sunsets, and feeling the cool breeze gives me balance and peace. These simple moments refresh my mind and help me stay focused.Nature has been a silent companion—giving me strength, calmness, and perspective. It has taught me to appreciate small moments and be mindful of the beauty around me.
+
 ## Journal Record
+
 
 
 
