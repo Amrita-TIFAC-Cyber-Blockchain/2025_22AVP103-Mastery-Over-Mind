@@ -1,6 +1,12 @@
 <p align="center">
     <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
-</p> Date:11.11.2025
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
+Date:11.11.2025
 Place: Amrita , coimbatore
 
 For Busdriver;
@@ -18,4 +24,5 @@ one my first day,i was left alone even though i had my school friend was there i
 
 
 ## Journal Record
+
 
