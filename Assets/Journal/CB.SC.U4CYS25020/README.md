@@ -1,3 +1,10 @@
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
 
 Scenario 1
 16/08/2025
@@ -15,6 +22,7 @@ Scenario 3
 24/08/2025
 To senior
 When I first entered Amrita University, I was filled with curiosity, excitement, and a fair amount of confusion. A new chapter of life was beginning, and like many first-year students, I carried several doubts about academics, hostel life, and the vibrant events our university organizes. Everything seemed unfamiliar—the campus, the routines, and the responsibilities that come with living independently for the first time. During this transition, one person made all the difference: a senior I met during the induction program. Their kindness, guidance, and encouragement left a deep impression on me, and this note is my humble way of expressing gratitude.During the induction period, our seniors interacted with us to help us adjust and understand university life. Among them, one senior stood out for their patience and genuine willingness to help. I had so many questions—about how to balance academics with extracurricular activities, how to participate in the fests that Amrita is well known for, and how to plan my time effectively. Instead of simply giving brief responses, my senior took the effort to explain everything clearly. They shared their own experiences from the initial days, told me about the various opportunities available for students, and assured me that everyone starts the journey with uncertainty, but with time and support, things become easier.One memorable thing was how they spoke about the fests conducted at Amrita University. They described how those events are not only a platform for showcasing talent but also a way to develop teamwork, leadership, and creativity. Their enthusiasm made me look forward to participating. Later, when the fest season arrived, their advice helped me confidently volunteer and engage in activities that I had never tried before. That experience not only gave me joy but helped me understand the importance of community and collaboration—values that Amrita upholds deeply.Beyond events and academics, my senior also gave me valuable guidance on personal growth. They advised me to approach learning with sincerity rather than pressure, to ask questions openly, and to seek balance between study and self-care. Whenever I faced minor challenges, their calm words reminded me that college life is a journey of discovery, not a race. This mindset slowly helped me gain confidence and clarity about my goals.Looking back now, I realize how fortunate I was to meet such a senior at the right time. Their small acts of help had a lasting influence on my outlook toward learning and life on campus. True mentorship is not about giving instructions; it is about inspiring someone to find their own path. My senior did exactly that. I sincerely thank them for being patient, approachable, and genuinely caring. People like them make the Amrita community special. I hope to carry forward that same spirit by helping newcomers just as my senior helped me. Their kindness continues to motivate me, and my gratitude toward them will always remain heartfelt.
+
 
 
 
