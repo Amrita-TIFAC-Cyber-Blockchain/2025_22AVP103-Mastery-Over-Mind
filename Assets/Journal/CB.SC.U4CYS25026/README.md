@@ -1,9 +1,11 @@
-
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
 
 # 22AVP103 - Mastery Over Mind
 
+## NAME Journaling 
 
-## Journal Record
 GRATITUDE JOUNORAL 
 This gratitude jounoral is my Way of saying thank you to the people at Amrita Vishwa vidyapeetam who help me every day.I am happy to write about how they have helped me and why I appreciate them
 
@@ -29,6 +31,7 @@ SCENARIO 3 :
 My class advisor : sreejith sir
 Time when I met him : 10-8-2025
 I am very thankful to my class advisor, Sreejith sir, at Amrita Vishwa Vidyapeetham. From the moment I joined the college, he has been a great guide and support for me and all the students in our class.Sreejith sir is not just  an advisor; he is like a mentor who listens to us with patience and kindness. Whenever we have problems, whether related to our studies, personal life, or future plans, he encourages us to talk openly. He listens carefully without any judgment and helps us find the best solutions. His support makes us feel safe and confident to face difficulties.One thing I really respect about sir is his approach to problems. Instead of just giving orders or answers, he explains things clearly and makes us think for ourselves. He believes in teaching us how to solve problems by understanding the root causes. This has helped me become more independent and responsible in my studies and life.Sir also guides us on how to manage our time well, balance studies and personal life, and work toward our goals steadily. I remember many times when I felt stressed about exams or projects, and sir’s words of encouragement helped me calm down and focus on my work. His advice about staying positive and working hard has left a strong impact on me.Apart from academic advice, Sreejith sir cares about our overall development. He organizes group activities, meetings, and events to bring us closer as classmates. Through these activities, we learn teamwork, leadership, and communication skills. Sir always encourages us to respect each other’s opinions, work together, and support our classmates, creating a friendly and positive environment in our class.He is very approachable and always available when we need him. I appreciate how sir never makes us feel rushed or ignored, no matter how busy he is. Whenever we visit him with questions or concerns, he gives us his full attention and treats our problems seriously. This shows how much he cares about our success and well-being.Sreejith sir is also very disciplined and professional. He is always punctual, organized, and well-prepared for meetings and discussions. His behavior teaches me the importance of discipline and responsibility in life. Watching his dedication motivates me to be serious and committed in my own work.Because of his constant support, I have gained more confidence in my studies and have become better at managing challenges. He encourages all students to believe in their abilities and not be afraid to ask for help. This encouragement helps me and many others feel more confident and motivated.Sir also helps us with career guidance. He shares useful information about internships, job opportunities, and skill development programs. His advice helps me plan my future better and take steps toward my goals. Knowing that I have such a knowledgeable and caring advisor gives me hope and confidence for the future.Another thing I am thankful for is sir’s kindness and patience. In college life, we face many ups and downs, and sir’s calm and understanding nature helps us stay positive. He treats all students with fairness and respect, which creates a strong bond between us. I see him not just as an advisor but as a true friend who wishes the best for all of us.In conclusion, I want to express my deepest gratitude to my class advisor, Sreejith sir. His guidance, support, and caring nature have made a big difference in my life. I am grateful for his patience, encouragement, and the time he spends to help us grow. Having such a wonderful advisor gives me confidence and strength to face college challenges and work toward my dreams.Thank you, Sreejith sir, for being an inspiring mentor and a great support to me and my classmates. Your efforts and care will always be remembered and appreciated.
+
 
 
 
