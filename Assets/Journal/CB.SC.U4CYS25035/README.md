@@ -1,3 +1,11 @@
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 collage lif is a journey filled with learnings,challenges,and personal growth,i would like to express my heartful gratitude towards three individuals in my collage who have supported and inspired me in various ways
 
 scenario 1
@@ -17,6 +25,7 @@ date;13-8-2025
 third my professor sreejith sir
 
 i would like to express my gratitude to sreejith sir who is not only a great teacher but also our class adviser whenever we have doubts he patiently give us clarity and makes sure that everyone understand if we wont understand anything he will clear the doubt properly and perfectly he always guides us in the right direction and helps us stay organized in both academics and collage activites his way of teaching inspires us to learn with intrest and confidence i feel very thankful to have a professor like him who motivates us to do our best everyday 
+
 
 
 
