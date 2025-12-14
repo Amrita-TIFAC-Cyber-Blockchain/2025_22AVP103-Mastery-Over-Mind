@@ -1,12 +1,11 @@
 <p align="center">
-
     <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
 </p>
 
 # 22AVP103 - Mastery Over Mind
 
+## NAME Journaling 
 
-## Journal Record
 Scenario 1 – To: Anjana (Date: 17/10/2025)
 
 The day before my Modern Physics mid-semester test was one of the most stressful days I can remember. I was really tense because I didn’t understand the last chapter properly. I had tried reading it many times, but the concepts just wouldn’t make sense. I felt lost and scared that I would lose all my marks in that part of the test.
@@ -50,3 +49,4 @@ The next time we went to the lab, we tried the experiment again — and this tim
 Her kindness taught me that a good teacher doesn’t just teach during class hours — they care about whether their students truly understand. She could have easily left that day without helping us further, but she didn’t. That small act made a big difference.
 
 That experience taught me to never lose confidence too quickly and to always stay patient when things go wrong. Most importantly, it reminded me how one person’s willingness to help can completely change someone else’s experience. I will always be grateful to her for going out of her way to teach us and for reminding me that kindness and patience can make learning much more meaningful.
+
