@@ -1,6 +1,11 @@
 <p align="center">
     <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
 </p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 The three incidents that happened which i really grateful am for are..
 
 Near start of august..
@@ -24,6 +29,7 @@ Also I really feel appreciated for this great oppurtunity i got to share what I 
 
 
 ## Journal Record
+
 
 
 
