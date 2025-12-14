@@ -4,7 +4,7 @@
 
 # 22AVP103 - Mastery Over Mind
 
-## Journal Record
+## NAME Journaling 
 
 1.Yashwanth (Senior)
 
