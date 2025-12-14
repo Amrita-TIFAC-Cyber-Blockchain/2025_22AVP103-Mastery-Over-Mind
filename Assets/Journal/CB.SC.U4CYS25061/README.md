@@ -1,3 +1,11 @@
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 three persons i am greatfull towards in amrita university,
 1.saurabh sir (our cyber essentials faculty member)
 2.c.jasswanth reddy( classmate)
@@ -20,4 +28,5 @@ these three people are im loving about being at amrita.i ll always treasure what
 
 
 ## Journal Record
+
 
