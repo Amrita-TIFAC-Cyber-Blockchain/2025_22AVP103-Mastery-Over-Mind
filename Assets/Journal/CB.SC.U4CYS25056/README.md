@@ -1,8 +1,11 @@
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
 
 # 22AVP103 - Mastery Over Mind
 
+## NAME Journaling 
 
-## Journal Record
 Gratitude journal
 
 When I think about my journey in this college, I realize how these  people make my date to day life better . I truly feel blessed to have met them.
@@ -92,4 +95,5 @@ more united and supportive.
 
 
 I am very thankful to this people. these people are making my college journey much bettter..
+
 
