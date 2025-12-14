@@ -1,8 +1,10 @@
 <p align="center">
     <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
 </p>
+
 # 22AVP103 - Mastery Over Mind
-## Journal Record
+
+## NAME Journaling 
 
 Gratitude Journal
  
@@ -23,5 +25,6 @@ I rushed to the classroom, opened the door, and finally saw my bag lying on the 
 
 This afternoon taught me a small but beautiful lesson about kindness. After lunch, I realized I was running late for my next class. I quickly packed my things and rushed out, hoping to catch the college bus in time. As I reached the bus stop, I saw the bus just starting to move. M I began running as fast as I could, and I kept hoping the driver would notice me. To my surprise, he did. The bus driver saw me running from a distance and, instead of continuing, he slowed down and waited patiently until I reached. I finally climbed in, out of breath but smiling with relief. I quickly said, “Thank you, uncle,” and he replied with a kind smile, “Be careful next time.” His calm tone and understanding nature touched my heart. It may seem like a small thing, but to me, it meant a lot. If he hadn’t waited, I would have missed the bus, reached class late, and maybe even got marked absent. Because of his patience and kindness, my day went smoothly and my mood completely changed. Sometimes, kindness doesn’t need big actions or words — even waiting for someone can show care and humanity. That moment reminded me that goodness still exists everywhere, even in simple, everyday interactions.
 I’m grateful for the bus driver’s patience and understanding.
+
 
 
