@@ -1,8 +1,11 @@
 <p align="center">
     <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
-</p
+</p>
 
 # 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 Scenario 1
 date-august 07
 whom: sree sai(Friend) 
@@ -17,6 +20,7 @@ SCENARIO 3
 Date: November 16
 whom: Yashwanth
 I wanted to thank you because on 16th November (Sunday), I was feeling tensed about cyber essentials exam, which is on Monday. I think time was around 9pm at that time.You came and understood my situation and explained me the concept but while explaining you realised that you didn’t wash your school uniform, even though it was late night and you don’t have uniform for tomorrow to wear, you explained me the concept completely and then washed your clothes. Honestly many people wont do that. It looks like a small thing, but I wanted to thank as you even postponed your work to explain me.
+
 
 
 
