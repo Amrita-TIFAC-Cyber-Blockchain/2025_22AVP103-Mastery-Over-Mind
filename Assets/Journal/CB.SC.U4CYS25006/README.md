@@ -1,6 +1,11 @@
 <p align="center">
     <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
 </p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 ** SCENARIO 1**
  Gratitude to our Mentor Vaishnavi mam- SIH Hackathon Journey
  Time Period/ Month- September 2025
@@ -88,6 +93,7 @@ Date: 11th November 2025
 
 
 ## Journal Record
+
 
 
 
