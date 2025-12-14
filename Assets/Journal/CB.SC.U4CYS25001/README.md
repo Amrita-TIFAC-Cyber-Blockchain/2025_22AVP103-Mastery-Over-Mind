@@ -1,3 +1,11 @@
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 Journal - cb.sc.u4cys25001 - 11-11-2025
 Gratitude journal :
 
@@ -22,4 +30,5 @@ I also want to mention **Chunganth Srinivasan Sir**, who showed great understand
 Finally, I want to give a heartfelt thanks to **Aadidevan**. Even before I fell sick, he had been a huge support academically. He spent time patiently helping me with homework and explaining concepts in **physics and maths**, especially before our exams. His way of teaching made complex topics easier to understand, and he never made me feel embarrassed for not grasping something right away. I could always count on him to break things down clearly and encourage me when I doubted myself.
 
 During the days I was sick, I couldn’t study at all. I remember feeling anxious about falling behind, worried that I wouldn’t catch up before the exams. But Aadidevan reassured me that he’d help me once I felt better — and he did. After I recovered, he sat with me, going over what I had missed, explaining each topic patiently until I felt confident again. It’s rare to find someone who not only excels in studies but also willingly shares that knowledge with others. His kindness, patience, and willingness to help made a significant difference for me, not just academically, but emotionally too.
+
 
