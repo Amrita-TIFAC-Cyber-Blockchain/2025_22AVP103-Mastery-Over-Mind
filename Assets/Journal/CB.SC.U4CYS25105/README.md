@@ -1,3 +1,11 @@
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
 Scenario 1 (after joining campus)
 <br>
 When I was struggling with my Physics and feeling very confused and started feeling bad, my friends Harshitha, Nethra, and Mansi helped me a lot. They sat with me and explained the physics lessons again and again until I understood everything clearly. They never got tired, and they were very patient with me. They even taught me the whole chapter twice so I would feel confident. In the test, the same topics came, and I was able to write well because of their support. I felt so happy and thankful. I am really grateful to all three of them for helping me when I needed it the most.
@@ -11,4 +19,5 @@ Everybody here makes fun of us, calling us "the Amirthas," because yes — my be
 Scenario 3 (last week)
 <br>
 Last wednesday my laptop was not turning on. Even when it turned on, the screen was completely black. I did not know what to do because I needed my laptop for my work. I felt very worried and stressed. So I called one of my seniors Manick Chandru who is studying here. He came and checked my laptop very patiently. He tried a few things and finally fixed the problem. I felt very relieved and happy when the screen started working again. I am really grateful to him for helping me at the right time. His support meant a lot to me.
+
 
