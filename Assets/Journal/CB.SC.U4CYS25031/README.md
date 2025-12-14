@@ -1,4 +1,11 @@
 <p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
+
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
    People I am grateful to in Amritha
 
 Date: 14/10/2025
@@ -15,3 +22,4 @@ I am grateful to every one of my teachers here at Amritha, but even so I am more
 
 
 ## Journal Record
+
