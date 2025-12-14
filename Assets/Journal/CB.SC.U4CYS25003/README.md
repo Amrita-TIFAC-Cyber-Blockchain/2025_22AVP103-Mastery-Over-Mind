@@ -1,5 +1,12 @@
-1. Gratitude to Mahilesh:
+<p align="center">
+    <img src="https://github.com/Amrita-TIFAC-Cyber-Blockchain/.github/blob/main/profile/img/AVV_CYS_Logo.png" alt ="Amrita TIFAC" width="700" />
+</p>
 
+# 22AVP103 - Mastery Over Mind
+
+## NAME Journaling 
+
+1. Gratitude to Mahilesh:
 
 When I joined college, I was both excited and scared. Everything felt new. The campus was large, the crowd was unfamiliar, and I didn’t know how I would adjust to this different environment. The first few weeks were full of confusion and anxiety. I struggled to find my classes, remember names, and handle the new subjects. I often felt lost. During this time, I met Mahilesh, a person whose energy and positivity transformed my college life.
 
