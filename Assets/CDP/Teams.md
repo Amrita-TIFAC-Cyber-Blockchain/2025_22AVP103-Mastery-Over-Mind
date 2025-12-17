@@ -17,7 +17,7 @@
 | [MaOM#07]()      | [CleanUp Squad]()  | CB.SC.U4CYS25011 <br/> CB.SC.U4CYS25012 <br/> CB.SC.U4CYS25030 <br/> CB.SC.U4CYS25053 | Chadipiralla Siva Jaswanth Reddy <br/> Darisa Venkata Suhas <br/> Komatineni Sahith <br/> Sunkara Gita Sri Charan | []() | 
 | [MaOM#08]()      | [GreenCare]()  | CB.SC.U4CYS25013 <br/> CB.SC.U4CYS25040 <br/> CB.SC.U4CYS25048 | Devadarshini S <br/> Pranay Vinod Palakiezh <br/> Rohit J R | []() | 
 | [MaOM#09]()      | [Tech Aware]()  | CB.SC.U4CYS25015 <br/> CB.SC.U4CYS25020 <br/> CB.SC.U4CYS25035 | Divvela Sruthi Raghava Priya <br/> Gundlapalli Bhavishya <br/> Nara Yasaswini | []() | 
-| [MaOM#10]()      | [PowerSaver]()  | CB.SC.U4CYS25016 <br/> CB.SC.U4CYS25027 <br/> CB.SC.U4CYS25044 <br/> CB.SC.U4CYS25066 | Doddoju Deepak <br/> Kalwakol Abhijith <br/> Reddymoni Yuva Teja <br/>  Madallapalli Chaitanya Ganesh |  []() | 
+| [MaOM#10]()      | [PowerSaver]()  | CB.SC.U4CYS25016 <br/> CB.SC.U4CYS25027 <br/> CB.SC.U4CYS25044 <br/> CB.SC.U4CYS25066 | Doddoju Deepak <br/> Kalwakol Abhijith <br/> Reddymoni Yuva Teja <br/>  Madallapalli Chaitanya Ganesh |  [Turned off lights and fans to save electricity when there were no on in class. Made Posters to raise awareness about Electricity wastage, showing its relationship with increased environment pollutants and money wastage.]() | 
 | [MaOM#11]()      | [Saviours]()  | CB.SC.U4CYS25017 <br/> CB.SC.U4CYS25028 <br/> CB.SC.U4CYS25041 <br/> CB.SC.U4CYS25058 |  Dulipudi Yashwanth Kumar <br/> Kankanala Harshith <br/> Puppala Dhanush <br/> Battu Naga Sai Mohit |  []() | 
 | [MaOM#12]()      | [Helping Hands]() | CB.SC.U4CYS25018 <br/> CB.SC.U4CYS25039 <br/> CB.SC.U4CYS25050 <br/> CB.SC.U4CYS25057 <br/> CB.SC.U4CYS25062 | G K Sainitheesh <br/> Pragadeeshvar Kaliappan <br/> Sanjithkrishna S P <br/> Allen Joel <br/> Sharvesh S | []() | 
 | [MaOM#13]()      | [NeedyHelpers]()  | CB.SC.U4CYS25021 <br/> CB.SC.U4CYS25026 <br/> CB.SC.U4CYS25056 | Gurram Sree Harshini Royal <br/> Jyothula Kiran Valli Atchutamba <br/> Tunga Supragna | []() | 
@@ -45,5 +45,6 @@
 | [MaOM#35]()      | [WarmthForAll]()  | CB.SC.U4CYS25131 <br/> CB.SC.U4CYS25150 <br/> CB.SC.U4CYS25159 | Mithraa J <br/> Srivarshini Sakthivel <br/>  Hemavaruna Nirmalkumar | []() | 
 | [MaOM#36]()      | [Reclaim]()  | CB.SC.U4CYS25132 <br/> CB.SC.U4CYS25136 <br/> CB.SC.U4CYS25144 <br/> CB.SC.U4CYS25153 | Motumarri Ravi Chandra <br/> Pinjala Rohith <br/> Sai Mihir Mandadi <br/> Thippareddygari Hari Shiva Kumar Reddy | []() | 
 | [MaOM#37]()      | [Building Bonds]()  | CB.SC.U4CYS25147 <br/> CB.SC.U4CYS25161 <br/> CB.SC.U4CYS25162 | Sanjith S <br/> Shabarish B <br/> Shreyas R  | []() | 
+
 
 
