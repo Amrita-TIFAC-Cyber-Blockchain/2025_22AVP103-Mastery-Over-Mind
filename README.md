@@ -24,13 +24,13 @@
 
 | Lecture No# |                  Lecture Title             |           Resource             | 
 |:-----------:|:-------------------------------------------|:-------------------------------|
-|     1       | Why Meditate?                              |     [YouTube Video](https://youtu.be/YqwxuzTFBVA) | 
+|     1       | Why Meditate?                              |     Video | 
 |     2       | Causes of Stress                           |                         |    
-|     3       | How Meditation improves Well-being         |     [R1: MayoClinic Article](https://www.mayoclinic.org/tests-procedures/meditation/in-depth/meditation/art-20045858) <br/> [R2: Efficient Action](Assets/Reading_Materials/Unit-2_R2-Chapter-28_Efficient_Action-Amritam_Gamaya.pdf) <br/> [YouTube Video - 1](https://youtu.be/BPLTicwfE6Q) <br/> [YouTube Video - 2](https://youtu.be/ewZfQAc-T9c) |
-|     4       | The Science of Meditation                  |     [R2: Science & Spirituality](Assets/Reading_Materials/Unit-3-R2-Chapter-85_Science_and_Spirituality-Amritam_Gamaya.pdf) <br/> [YouTube Video - 1](https://youtu.be/MdYVkiKnXgk) <br/> [YouTube Video - 2](https://youtu.be/2_k1NP4CTDM) |
-|     5       | Practicing MA OM Meditation in Daily Life  |     [R2: Live in the Present Moment](Assets/Reading_Materials/Unit-4_R2-Chapter-71-Live_in_the_Present_Moment-Amritam_Gamaya.pdf) <br/> [YouTube Video - 1](https://youtu.be/TZU7RcqdfjM) <br/> [YouTube Video - 2](https://youtu.be/GKh462Dtsks) |
+|     3       | How Meditation improves Well-being         |     [R1: MayoClinic Article](https://www.mayoclinic.org/tests-procedures/meditation/in-depth/meditation/art-20045858) <br/> [R2: Efficient Action](Assets/Reading_Materials/Unit-2_R2-Chapter-28_Efficient_Action-Amritam_Gamaya.pdf) <br/> [YouTube Video - 1](https://youtu.be/BPLTicwfE6Q) <br/> Video |
+|     4       | The Science of Meditation                  |     [R2: Science & Spirituality](Assets/Reading_Materials/Unit-3-R2-Chapter-85_Science_and_Spirituality-Amritam_Gamaya.pdf) <br/> Video  |
+|     5       | Practicing MA OM Meditation in Daily Life  |     [R2: Live in the Present Moment](Assets/Reading_Materials/Unit-4_R2-Chapter-71-Live_in_the_Present_Moment-Amritam_Gamaya.pdf) <br/> Video |
 |     6       | Improving Communication and Relationships  |     [R1: Psychology Today Article](https://www.psychologytoday.com/us/blog/feeling-it/202206/5-unexpected-ways-meditation-improves-relationships-lot) <br/> [R2: Attitude](Assets/Reading_Materials/Unit-5_R2-Chapter-53-Attitude_Amritam_Gamaya.pdf) <br/> [YouTube Video](https://youtu.be/Zb_2Fuvl_uA) |
-|     7       | Meditation and Compassion-driven Action    |     [R2: Sympathy and Compassion](Assets/Reading_Materials/Unit-6-R2_Chapter-100_Sympathy_and_Compassion-Amritam_Gamaya.pdf) <br/> [YouTube Video](https://youtu.be/vruq5RP0eBo) |
+|     7       | Meditation and Compassion-driven Action    |     [R2: Sympathy and Compassion](Assets/Reading_Materials/Unit-6-R2_Chapter-100_Sympathy_and_Compassion-Amritam_Gamaya.pdf) <br/>  Video |
 
 ### Evaluation Criteria
 
